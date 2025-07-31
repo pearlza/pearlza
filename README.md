@@ -9,4 +9,4 @@
 
 <p align="center">I do not support cc!dream or cc!wilbur they both suck btw</p>
 
-<p align="center">Since someone decided to accuse me of being racist after digging through an old dni, the context is I don't like RCTA, either irl or people doing it to fictional characters. Natural rep like a cc!'s actual race, e.g. Quackity being spanish, should take precedence over making characters something they're not. The dni was for an old fandom and I haven't touched it in a while. Might rewrite it soon since people are getting pissed off at my poor wording again.</p>
+<p align="center">Got canceled for not liking fictional RCTA wow yay. /sarc Natural rep like a cc!'s actual race, e.g. Quackity being spanish, should take precedence over making characters something they're not. The dni was for an old fandom and I haven't touched it in a while. Might rewrite it soon since people are getting pissed off at my poor wording again.</p>
