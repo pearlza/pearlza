@@ -8,3 +8,5 @@
 <p align="center">If I'm in my Technoblade skin, I'm open to sitting with Philza (EMERALDDUO PLEASE), Tommy, Ranboo, Niki, Tubbo, Wilbur, Skeppy, Dream, Quackity (I may bully you a little for funsies), Schlatt, or anyone else Technoblade knows. I'm open to Technoblade ships beyond emduo.</p>
 
 <p align="center">I do not support cc!dream or cc!wilbur they both suck btw</p>
+
+<p align="center">Since someone decided to accuse me of being racist after digging through an old dni,  the context is I don't like forced rep. Natural rep like a cc!'s actual race should take precedence over making characters something they're not.</p>
