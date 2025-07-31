@@ -9,4 +9,4 @@
 
 <p align="center">I do not support cc!dream or cc!wilbur they both suck btw</p>
 
-<p align="center">Got canceled for not liking fictional RCTA wow yay. /sarc Natural rep like a cc!'s actual race, e.g. Quackity being spanish, should take precedence over making characters something they're not. The dni was for an old fandom and I haven't touched it in a while. Might rewrite it soon since people are getting pissed off at my poor wording again.</p>
+<p align="center">Got canceled for not liking fictional RCTA wow yay. /sarc. Natural rep like a cc!'s actual race, e.g. Quackity being spanish, should take precedence over making characters something they're not. The dni was for an old fandom and I hadn't touched it in a while. Rewrote it and had it vetted by a longtime POC friend since people are getting pissed off at my poor wording again.</p>
