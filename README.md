@@ -9,4 +9,4 @@
 
 <p align="center">I do not support cc!dream or cc!wilbur they both suck btw</p>
 
-<p align="center">Since someone decided to accuse me of being racist after digging through an old dni,  the context is I don't like forced rep. Natural rep like a cc!'s actual race should take precedence over making characters something they're not.</p>
+<p align="center">Since someone decided to accuse me of being racist after digging through an old dni,  the context is I don't like forced rep. Natural rep like a cc!'s actual race, e.g. Quackity being spanish, should take precedence over making characters something they're not. The dni was for an old fandom and I haven't touched it in a while. Might rewrite it soon since people are getting pissed off at my poor wording again.</p>
