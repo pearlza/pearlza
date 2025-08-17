@@ -9,4 +9,4 @@
 
 <p align="center">If I'm in my Tommy skin, DREAM DO NOT FUCKING INT I WILL SLAP YOU. SBI and Tubbo and Ranboo and stuff can int :D</p>
 
-<p align="center">I do not support cc!dream or cc!wilbur they both suck btw</p>
+<p align="center">I do not support any creators I don't know enough about. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
