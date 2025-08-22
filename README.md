@@ -4,7 +4,7 @@
 
 <h3><p align="center">philza kinnie moment</p></h3>
 
-<p align="center">Preferred duo/group c+h: EmeraldDuo (comf dynamic, queerplatonic?), Anarchist Syndicate (Ranboo my beloved, platonic), Bedrock Bros (comf dynamic, platonic/familial), SBI</p>
+<p align="center">Preferred duo/group c+h: EmeraldDuo (comf dynamic, queerplatonic?), Anarchist Syndicate, Bedrock Bros (comf dynamic, platonic/familial), Doomsday Trio, Rivals Duo, SBI. Disc Duo is on thin ice PLEASE be normal and not a creep.</p>
 
 <p align="center">If I'm in my Philza skin, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I NEED IT), Tommy, Wilbur, Tubbo, Ranboo, Niki, anyone Philza knows basically. I ship emeraldduo in every way possible privately but I don't mind sitting as platonic emeraldduo too! I just think it's at least queerplatonic canonically.</p>
 <p align="center">Forewarning, Phil gets easily attached and is somewhat affectionate. It's probably a coping mechanism from being separated from everyone he has memories of.</p>
