@@ -4,12 +4,12 @@
 
 <h3><p align="center">philza kinnie moment</p></h3>
 
-<p align="center">Preferred duo/group c+h: EmeraldDuo (comf dynamic, queerplatonic?), Anarchist Syndicate, Bedrock Bros (comf dynamic, platonic/familial), Doomsday Trio, Rivals Duo, SBI. Disc Duo is on thin ice PLEASE be normal and not a creep.</p>
+<p align="center">Preferred duo/group c+h: EmeraldDuo (comf dynamic, queerplatonic?), Anarchist Syndicate, Bedrock Bros (comf dynamic, platonic/familial), Doomsday Trio, Rivals Duo. SBI is ok! Disc Duo is on thin ice PLEASE be normal and not a creep.</p>
 
 <p align="center">If I'm in my Philza skin, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I NEED IT), Tommy, Wilbur, Tubbo, Ranboo, Niki, anyone Philza knows basically. I ship emeraldduo in every way possible privately but I don't mind sitting as platonic emeraldduo too! I just think it's at least queerplatonic canonically.</p>
-<p align="center">Forewarning, Phil gets easily attached and is somewhat affectionate. It's probably a coping mechanism from being separated from everyone he has memories of.</p>
+<p align="center">Forewarning, Phil gets easily attached and is kind/affectionate even with people he doesn't know well. Finds huge comfort in Techno, unwaveringly loyal and affectionate toward him, wants to live with him.</p>
 <p align="center">If I'm in my Technoblade skin, I'm open to sitting with Philza (EMERALDDUO PLEASE), Tommy (Techno is like his older brother/father figure), Ranboo (Techno is protective of him), Niki, Skeppy (I might troll you affectionately), Dream (I will poke fun at you but it's out of affection I promise), Quackity (I may bully you a little for funsies once I know you), or anyone else Technoblade knows.</p>
-<p align="center">Techno is chill with everyone unless they treat him poorly first. Probably asexual, but can be affectionate, rarely. Protective of Ranboo, less protective of Tommy but cares about him. Bullies people affectionately or for fun. Tolerates Dream.</p>
+<p align="center">Techno is chill with everyone unless they treat him poorly first. Probably asexual, but can be affectionate, rarely. Protective of Ranboo, less protective of Tommy but cares about him. Bullies people affectionately or for fun. Finds Dream entertaining to interact with.</p>
 <p align="center">If I'm in my Tommy skin, Techno is a HUGE comfort and Phil is dad. DREAM DO NOT APPROACH ME I WILL SLAP YOU /hj (actually idfc as long as you're not a dick). SBI and Tubbo and Ranboo and Mumbo Jumbo and Grian and stuff definitely int please :D</p>
 <p align="center">Tommy often dissociates and needs the comfort of music (e.g. listening to the discs) to stay focused. He also gets clingy with people he feels safe with, but takes a while to trust people.</p>
 
