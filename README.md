@@ -13,4 +13,6 @@
 <p align="center">If I'm in my Tommy skin, Techno is a HUGE comfort and he's protective of the Phil in this system. DREAM DO NOT APPROACH ME I WILL SLAP YOU /hj (actually idfc as long as you're not a dick). Techno and Philza and nwss!Wilbur and Tubbo and Ranboo and Mumbo Jumbo and Grian and stuff definitely int please :D</p>
 <p align="center">Tommy often dissociates and needs the comfort of music (e.g. listening to the discs) to stay focused. He also gets clingy with people he feels safe with, but takes a while to trust people.</p>
 
+<p align="center">Schlatt doesn't really use this account, but is here nonetheless. Protective of the Phil in this system.</p>
+
 <p align="center">I do not support any creators I don't know enough about. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
