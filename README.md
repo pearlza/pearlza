@@ -16,3 +16,7 @@
 <p align="center">Schlatt doesn't really use this account, but is here nonetheless. Protective of the Phil in this system.</p>
 
 <p align="center">I do not support any creators I don't know enough about. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
+
+<p align="center">-</p>
+
+<p align="center">I'm actually multifandom! While I am currently obsessed with Minecraft, I also enjoy Genshin Impact, CRK, Undertale, Deltarune, Stanley Parable, a few animes, HH/HB because of characters I kin in them but I don't support the creator and avoid most of the fanbase, HSR before amphoreus, and older fandoms like LOTR and Star Wars.</p>
