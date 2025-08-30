@@ -15,7 +15,7 @@
 
 <p align="center">Schlatt doesn't really use this account, but is here nonetheless. Protective of the Phil in this system.</p>
 
-<p align="center">I do not support any creators I don't know enough about. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
+<p align="center">I do not support any creators I don't know enough about. Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 
 <p align="center">-</p>
 
