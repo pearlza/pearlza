@@ -17,6 +17,8 @@
 
 <p align="center">I do not support any creators I don't know enough about (nwss, but the casual "I just don't fucking care about the cc at all, he never interested me" kind). Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 
-<p align="center">-</p>
+<p align="center">
+<a href="https://rentry.co/philzasblinkies">shinies hoard</a>
+</p>
 
 <p align="center">I'm actually multifandom! While I am currently obsessed with Minecraft, I also enjoy Genshin Impact, CRK, Undertale, Deltarune, Stanley Parable, a few animes, HH/HB because of characters I kin in them but I don't support the creator and avoid most of the fanbase, HSR before amphoreus, and older fandoms like Marvel, LOTR and Star Wars.</p>
