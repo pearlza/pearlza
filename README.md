@@ -13,8 +13,6 @@
 <p align="center">If I'm in my Tommy skin, Techno is a HUGE comfort to him and he's protective of the Phil in this system. DREAM DO NOT APPROACH ME I WILL SLAP YOU /j (actually idfc as long as you're not a dick). Techno and Philza and Wilbur and Tubbo and Ranboo and Mumbo Jumbo and Grian and stuff definitely int please :D</p>
 <p align="center">Tommy often dissociates and needs the comfort of music (e.g. listening to the discs) to stay focused. He also gets clingy with people he feels safe with, but takes a while to trust people. Has conflicted opinion of Dream, may act aggressive (nonseriously ofc) toward anyone in a skin of him to feel comfortable around them.</p>
 
-<p align="center">Schlatt doesn't really use this account, but is here nonetheless. Protective of the Phil in this system.</p>
-
 <p align="center">I do not support any creators I don't know enough about (nwss, but the casual "I just don't fucking care about the cc at all, he never interested me" kind). Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 
 <p align="center">
