@@ -19,10 +19,6 @@
 <a href="https://rentry.co/philzasblinkies">shinies hoard</a>
 </p>
 
-<div align="center">
-  <img src="https://64.media.tumblr.com/9ddc664d1c3b3985e91675440f417127/7edf6bb92b5e182e-8e/s250x400/1b03a17381257ce2c2d18e7e360770bab44f4abc.gifv">
-</div>
-
 <p align="center">I'm actually multifandom! While I am currently obsessed with Minecraft, I also enjoy Genshin Impact, CRK, Undertale, Deltarune, Stanley Parable, a few animes, HH/HB because of characters I kin in them but I don't support the creator and avoid most of the fanbase, HSR before amphoreus, and older fandoms like Marvel, LOTR and Star Wars.</p>
 
 <h3><p align="center"><I>time, a gentle breeze, a poem and a song</I></p></h3>
