@@ -28,5 +28,5 @@
 <h3><p align="center"><I>time, a gentle breeze, a poem and a song</I></p></h3>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/213f4c122fa1ba0dd1bd45c27df6cb68/4a99b680d590827e-a1/s400x600/6b9745c2f25856dcc84c79e28de6c5571a95345b.pnj">
+  <img src="https://64.media.tumblr.com/acff1ce2e56d0bb6bccc161daa06d9e0/9925c6b6b46ccd6f-30/s640x960/eb988138aaa5e419761efbf99d114def07ec8ea4.jpg">
 </div>
