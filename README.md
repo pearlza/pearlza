@@ -18,6 +18,9 @@
 <p align="center">
 <a href="https://rentry.co/philzasblinkies">shinies hoard</a>
 </p>
+<p align="center">
+<a href="https://facetsystem.straw.page">music dump</a>
+</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/e2e6374eb112d0e61c7a58bacf94ae3f/7edf6bb92b5e182e-d9/s250x400/88a89552c29c1fc477b152dcc3f92ed8f11a1a60.gifv">
