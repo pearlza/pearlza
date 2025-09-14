@@ -27,7 +27,7 @@
   <img src="https://64.media.tumblr.com/e2e6374eb112d0e61c7a58bacf94ae3f/7edf6bb92b5e182e-d9/s250x400/88a89552c29c1fc477b152dcc3f92ed8f11a1a60.gifv">
 </div>
 
-<p align="center">I'm actually multifandom! While I am currently obsessed with Minecraft, I also enjoy Genshin Impact, CRK, Undertale, Deltarune, Stanley Parable, a few animes, HH/HB because of characters I kin in them but I don't support the creator and avoid most of the fanbase, HSR before amphoreus, and older fandoms like Marvel, LOTR and Star Wars.</p>
+<p align="center">I'm actually multifandom! While I am currently obsessed with Minecraft, I also enjoy Genshin Impact, CRK, Undertale, Deltarune, Stanley Parable, a few animes, Omori, HH/HB because of characters I kin in them but I don't support the creator and avoid most of the fanbase, HSR before amphoreus, and older fandoms like Marvel, LOTR and Star Wars.</p>
 
 <h3><p align="center"><I>time, a gentle breeze, a poem and a song</I></p></h3>
 
