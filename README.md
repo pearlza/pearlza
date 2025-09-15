@@ -4,7 +4,7 @@
 
 <h3><p align="center">philza kinnie moment</p></h3>
 
-<p align="center">Preferred duo/group c+h: EmeraldDuo (comf dynamic, queerplatonic?), Anarchist Syndicate, Bedrock Bros (comf dynamic, platonic/familial), Doomsday Trio, Rivals Duo. Disc Duo is <i>fffine</i> I guess as long as ppl with Dream skins aren't being weirdos to Tommy.</p>
+<p align="center">Preferred duo/group c+h: EmeraldDuo (comf dynamic, queerplatonic?), Anarchist Syndicate, Bedrock Bros (comf dynamic, platonic/familial), Doomsday Trio, Rivals Duo.</p>
 
 <p align="center">If I'm in my Philza skin, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I NEED IT), Mumza/Kristin, Tommy, Wilbur, Sneeg, Tubbo, Ranboo, Niki, anyone Philza knows basically. EmeraldDuo is not just platonic to me, it feels very queerplatonic (coming from someone who has been in a QPR in the past). Ppl who see Techno as Phil's kid IWC. They are friends, not related.</p>
 <p align="center">Forewarning, Phil (combination of both c!phil and cc!phil) is sensitive, gets easily attached, and is kind/affectionate even with people he doesn't know well. Has very fond memories of Techno, Sneeg, Tommy, and Wil. Goes gremlin crow brain sometimes and can only think about collecting shiny things (e.g. cc!phil's origins behavior "am bird, I see shiny. can I has").</p>
