@@ -29,8 +29,9 @@
 
 <p align="center">I'm actually multifandom! While I am currently obsessed with Minecraft, I also enjoy Genshin Impact, CRK, Undertale, Deltarune, Stanley Parable, a few animes, Omori, HH/HB because of characters I kin in them but I don't support the creator and avoid most of the fanbase, HSR before amphoreus, and older fandoms like Marvel, LOTR and Star Wars.</p>
 
-<h3><p align="center"><I>time, a gentle breeze, a poem and a song</I></p></h3>
+<p align="center">|</p>
 
+<p align="center"><I>You're my kid. of course I care about you, mate.</I></p>
 <div align="center">
-  <img src="https://64.media.tumblr.com/acff1ce2e56d0bb6bccc161daa06d9e0/9925c6b6b46ccd6f-30/s640x960/eb988138aaa5e419761efbf99d114def07ec8ea4.jpg">
+  <img src="https://64.media.tumblr.com/e22f939efd03c5917d759d9c6c9d4afe/5c2bfca46da2a252-93/s1280x1920/c6384b8b86568f9001812cb12057d284d07dae56.jpg">
 </div>
