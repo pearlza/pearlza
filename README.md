@@ -4,9 +4,9 @@
 
 <h3><p align="center">philza kinnie moment</p></h3>
 
-<p align="center">Preferred duo/group c+h: EmeraldDuo (comf dynamic, queerplatonic?), Anarchist Syndicate, Bedrock Bros (comf dynamic, platonic/familial), Doomsday Trio, Rivals Duo.</p>
+<p align="center">Preferred duo/group c+h: EmeraldDuo (comf dynamic, queerplatonic?), Angel Duo (comf, familial), Bedrock Bros (comf dynamic, platonic/familial), Peer Pressure Duo (comf dynamic, platonic), Anarchist Syndicate, Doomsday Trio, Rivals Duo.</p>
 
-<p align="center">If I'm in my Philza skin, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I NEED IT), Mumza/Kristin, Tommy, Wilbur, Sneeg, Tubbo, Ranboo, Niki, anyone Philza knows basically. EmeraldDuo is not just platonic to me, it feels very queerplatonic (coming from someone who has been in a QPR in the past). Ppl who see Techno as Phil's kid IWC. They are friends, not related.</p>
+<p align="center">If I'm in my Philza skin, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I NEED IT), Mumza/Kristin, Tommy, Wilbur, Sneeg, Tubbo, Ranboo, Niki, anyone Philza knows basically. EmeraldDuo is not just platonic to me, it feels very queerplatonic (coming from someone who has been in a QPR in the past). Ppl who see Techno as Phil's kid IWC. They are friends, not related. I like SBI only when it's portrayed as EmeraldDuo + their kids.</p>
 <p align="center">Forewarning, Phil (combination of both c!phil and cc!phil) is sensitive, gets easily attached, and is kind/affectionate even with people he doesn't know well. Has very fond memories of Techno, Sneeg, Tommy, and Wil. Goes gremlin crow brain sometimes and can only think about collecting shiny things (e.g. cc!phil's origins behavior "am bird, I see shiny. can I has").</p>
 <p align="center">My inchboy Sneegsnag pony is a comf for cuddling Philzas with, in this skin I wanna int/c+h with any of the Origins SMP people but mainly Phil. No ships pls.</p>
 <p align="center">If I'm in my Technoblade skins (dsmp, origins), I'm open to sitting with Philza (EMERALDDUO PLEASE), Tommy (Techno is like his older brother/father figure), Ranboo (Techno is protective of him), Niki, Skeppy (ILY/p), Dream (NERRRRD), Quackity (I'm not scary I promise), Wilbur, or anyone else Technoblade knows.</p>
