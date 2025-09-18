@@ -33,7 +33,4 @@
   <img src="https://64.media.tumblr.com/304317ca3fc920c3bb8a07230673b50d/5c2bfca46da2a252-de/s250x400/2b5fb4918071f7f89b1a4101f71e26dba2c622df.jpg">
 </div>
 
-<h4><p align="center"><I>You're my kid. of course I care about you, mate.</I></p></h4>
-<div align="center">
-  <img src="https://64.media.tumblr.com/e22f939efd03c5917d759d9c6c9d4afe/5c2bfca46da2a252-93/s1280x1920/c6384b8b86568f9001812cb12057d284d07dae56.jpg">
-</div>
+<h4><p align="center"><I>Why is everything I care about always ripped from me?</I></p></h4>
