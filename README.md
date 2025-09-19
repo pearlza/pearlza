@@ -32,5 +32,4 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/304317ca3fc920c3bb8a07230673b50d/5c2bfca46da2a252-de/s250x400/2b5fb4918071f7f89b1a4101f71e26dba2c622df.jpg">
 </div>
-
-<h4><p align="center"><I>Why is everything I care about always ripped from me?</I></p></h4>
+<h4><p align="center"><I>sneeg kinnie</I></p></h4>
