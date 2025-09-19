@@ -27,9 +27,4 @@
   <img src="https://64.media.tumblr.com/e2e6374eb112d0e61c7a58bacf94ae3f/7edf6bb92b5e182e-d9/s250x400/88a89552c29c1fc477b152dcc3f92ed8f11a1a60.gifv">
 </div>
 
-<p align="center">I'm actually multifandom! While I am currently obsessed with Minecraft, I also enjoy Genshin Impact, CRK, Undertale, Deltarune, Stanley Parable, a few animes, Omori, HH/HB because of characters I kin in them but I don't support the creator and avoid most of the fanbase, HSR before amphoreus, and older fandoms like Marvel, LOTR and Star Wars.</p>
-
-<div align="center">
-  <img src="https://64.media.tumblr.com/304317ca3fc920c3bb8a07230673b50d/5c2bfca46da2a252-de/s250x400/2b5fb4918071f7f89b1a4101f71e26dba2c622df.jpg">
-</div>
-<h4><p align="center"><I>sneeg kinnie</I></p></h4>
+<h4><p align="center"><I>Why is my preemptive grieving never wrong.</I></p></h4>
