@@ -24,8 +24,4 @@
 <a href="https://facetsystem.straw.page">music dump</a>
 </p>
 
-<div align="center">
-  <img src="https://64.media.tumblr.com/687bebbc37de8464a4c6a7dc50f0f9bc/e7c4a740be0da937-a3/s400x600/b617592be52182271aa0a2686f2b3b154626d413.pnj">
-</div>
-
-<h4><p align="center"><I>Loss is nothing new to me. So why do I still cry?</I></p></h4>
+<h4><p align="center"><I>I am nothing and everything.</I></p></h4>
