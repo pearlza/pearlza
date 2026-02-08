@@ -2,7 +2,7 @@
   <img src="https://64.media.tumblr.com/cf1b7ce2dbd721ba6aa18e56475bbe12/a1b47f847a7dc038-37/s400x600/49e035a947b42937c6d9d626f6e6418b37dab67c.gifv">
 </div>
 
-<h3><p align="center">philza kinnie moment</p></h3>
+<h4><p align="center"><I>what is home to you?</I></p></h4>
 
 <p align="center">Preferred duo/group c+h: EmeraldDuo (comf dynamic, queerplatonic?), Angel Duo (comf, familial), Bedrock Bros (comf dynamic, platonic/familial), Peer Pressure Duo (comf dynamic, platonic), Anarchist Syndicate, Doomsday Trio, Rivals Duo.</p>
 
