@@ -8,6 +8,9 @@
 
 <p align="center">If I'm in my Philza skin, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I MISS HAVING THAT KIND OF CONNECTION AND COMFORT SM), Tommy, Ranboo, Sneeg, Mumza/Kristin, Tubbo, Niki, anyone Philza knows basically. EmeraldDuo is not just platonic to me, that amount of unshakeable loyalty and the fact that those characters are very old friends feels very queerplatonic (coming from someone who has been in a QPR in the past). Ppl who see Techno as Phil's kid IWC. They are friends, not related. I like "SBI" only when it's portrayed as EmeraldDuo + the kids they both look after and care for.</p>
 <p align="center">Forewarning, Phil (combination of both c!phil and cc!phil) is sensitive, gets easily attached, and is kind/affectionate even with people he doesn't know well. Has very fond memories of Techno, Sneeg, Tommy, and Ranboo.</p>
+
+<h4><p align="center"><I>Do I have a home? I don't know anymore.</I></p></h4>
+
 <p align="center">My inchboy Sneegsnag pony is a comf for cuddling Philzas with, in this skin I wanna int/c+h with any of the Origins SMP people (Techno, Smajor, Niki, Jack, Ranboo, Tubbo, etc!) but mainly Phil. No ships pls.</p>
 <p align="center">If I'm in my Ranboo skin: Benchtrio, Anarchist Syndicate, Allium Duo, etc. please int/c+h! Dream IWC unless Cellbitlover.</p>
 <p align="center">If I'm in my Technoblade skins (dsmp, origins), I'm open to sitting with Philza (again, I adore emeraldduo), Tommy (Techno is like his older brother/father figure), Ranboo (Techno is protective of him), Niki, Skeppy (ILY/p), Dream (NERRRRD), Quackity (I'm not scary I promise), or anyone else Technoblade knows.</p>
