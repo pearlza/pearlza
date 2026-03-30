@@ -6,8 +6,8 @@
 
 <p align="center">Preferred duo/group c+h: EMERALD DUO (comf dynamic, queerplatonic?), Angel Duo (comf, familial), Bedrock Bros (comf dynamic, platonic/familial), Peer Pressure Duo (comf dynamic, platonic), Anarchist Syndicate, DOOMSDAY TRIO, Rivals Duo.</p>
 
-<p align="center">If I'm in my Philza skin, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I MISS HAVING THAT KIND OF CONNECTION AND COMFORT SM), Tommy, Tubbo, Ranboo, Sneeg, Niki, Fit, Missa, Etoile, Quackity, anyone Philza knows basically. EmeraldDuo is not just platonic to me, that amount of unshakeable loyalty and the fact that those characters are very old friends feels very queerplatonic (coming from someone who has been in a QPR in the past). Ppl who see Techno as Phil's kid IWC. They are friends, not related. I like "SBI" only when it's portrayed as EmeraldDuo + the kids they both look after and care for.</p>
-<p align="center">Forewarning, Phil (combination of both c!phil and cc!phil) is sensitive, gets easily attached, and is kind/affectionate even with people he doesn't know well. Has very fond memories of Techno, Sneeg, Tommy, and Ranboo.</p>
+<p align="center">If I'm in my Philza skin, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I MISS HAVING THAT KIND OF CONNECTION AND COMFORT SM), Tommy, Tubbo, Ranboo, Sneeg, Niki, Fit, Missa, Etoile, Quackity, Schlatt, anyone Philza knows basically. EmeraldDuo is not just platonic to me, that amount of unshakeable loyalty and the fact that those characters are very old friends feels very queerplatonic (coming from someone who has been in a QPR in the past). Ppl who see Techno as Phil's kid IWC. They are friends, not related. I like "SBI" only when it's portrayed as EmeraldDuo + the kids they both look after and care for.</p>
+<p align="center">Forewarning, Phil is sensitive, gets easily attached, and is kind/affectionate even with people he doesn't know well.</p>
 
 <h4><p align="center"><I>Do I have a home? I don't know anymore.</I></p></h4>
 
