@@ -11,7 +11,6 @@
 
 <p align="center">If I'm in my Philza skins, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I MISS HAVING THAT KIND OF CONNECTION AND COMFORT SM), Chayanne/Tallulah, Tommy, Tubbo, Ranboo, Sneeg, Niki, Fit, Missa, Etoile, Quackity, Schlatt, anyone Philza knows basically. EmeraldDuo is not just platonic to me, that amount of unshakeable loyalty and the fact that those characters are very old friends feels very queerplatonic (coming from someone who has been in a QPR in the past).</p>
 <p align="center">If I'm in my Technoblade skins (dsmp, passerine, antarctic empire, origins), I'm open to sitting with Philza (again, I adore emeraldduo), Skeppy (ILY/p), Dream (NERRRRD), Ranboo (Techno is protective of him), Tommy (Techno is like his older brother/father figure), Niki (you deserve recognition), Quackity (I'm not scary I promise), Wilbur (don't have complicated feelings about him like Phil does) or anyone else Technoblade knows.</p>
-<p align="center">Techno (mostly has the memories of cc!techno but has the appearance of c!techno, more canon than fanon) is chill with everyone unless they treat him poorly first. Probably aroace, but can be affectionate, rarely. Protective of Ranboo, less protective of Tommy but cares about him, cares about c!Wilbur. Bullies people affectionately or for fun.</p>
 
 <h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
 
