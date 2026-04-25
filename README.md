@@ -4,10 +4,10 @@
 
 <h4><p align="center"><I>What is home to you?</I></p></h4>
 
-<p align="center">Preferred duo/group c+h: EMERALD DUO (comf dynamic, queerplatonic?), ORPHAN DUO (skeppy+techno, platonic), DOOMSDAY TRIO, Death Family (familial), Bedrock Bros (comf dynamic, platonic/familial), Anarchist Syndicate, Rivals Duo, Angel Duo (comf, familial), Peer Pressure Duo (comf dynamic, platonic).</p>
+<p align="center">Preferred duo/group c+h: EMERALD DUO (comf dynamic, queerplatonic), DOOMSDAY TRIO, Death Family (familial), Bedrock Bros (comf dynamic, platonic/familial), Anarchist Syndicate, Rivals Duo, Angel Duo (comf, familial), Peer Pressure Duo (comf dynamic, platonic).</p>
 
 <p align="center">If I'm sitting with one of my friends, please ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and will just ignore you if you attempt to interrupt.</p>
-<p align="center">c!SBI likers IWEC. I like "SBI" only when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT SHIT ONTO ME, THANKS.</p>
+<p align="center">c!SBI likers IWEC. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT SHIT ONTO ME, THANKS.</p>
 
 <p align="center">If I'm in my Philza skins, I'm open to sitting with Technoblade (PLEASE PLEASE EMERALDDUO I MISS HAVING THAT KIND OF CONNECTION AND COMFORT SM), Chayanne/Tallulah, Tommy, Tubbo, Ranboo, Sneeg, Niki, Fit, Missa, Etoile, Quackity, Schlatt, anyone Philza knows basically. EmeraldDuo is not just platonic to me, that amount of unshakeable loyalty and the fact that those characters are very old friends feels very queerplatonic (coming from someone who has been in a QPR in the past).</p>
 <p align="center">If I'm in my Technoblade skins (dsmp, passerine, antarctic empire, origins), I'm open to sitting with Philza (again, I adore emeraldduo), Skeppy (ILY/p), Dream (NERRRRD), Ranboo (Techno is protective of him), Tommy (Techno is like his older brother/father figure), Niki (you deserve recognition), Quackity (I'm not scary I promise), Wilbur (don't have complicated feelings about him like Phil does) or anyone else Technoblade knows.</p>
