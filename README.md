@@ -12,7 +12,8 @@
 <p align="center">If I'm in my Philza skins, Wilbur skins iwc and c!SBI dni. EmeraldDuo is not just platonic to me, that amount of unshakeable loyalty and the fact that those characters are very old friends feels very queerplatonic (coming from someone who has been in a QPR in the past).</p>
 <p align="center">If I'm in my Technoblade skins, anyone can int/c+h I don't mind.</p>
 
-<h4><p align="center"><I>What is home to you? Is it a person? A fandom? A place?</I></p></h4>
+<h4><p align="center"><I>What is home to you?</I></p></h4>
+<h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
 
 <p align="center">My inchboy Sneegsnag pony is a comfort skin for cuddling philzas with but other origins smp ppl can int.</p>
 <p align="center">If I'm in my Ranboo skin: Benchtrio, Anarchist Syndicate, Allium Duo, etc. please int/c+h! Dream IWC unless Cellbitlover.</p>
