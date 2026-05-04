@@ -15,9 +15,9 @@
 <h4><p align="center"><I>What is home to you?</I></p></h4>
 <h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
 
-<p align="center">My inchboy Sneegsnag pony is a comfort skin for cuddling philzas with but other origins smp ppl can int.</p>
-<p align="center">If I'm in my Ranboo skin: Benchtrio, Anarchist Syndicate, Allium Duo, etc. please int/c+h! Dream IWC unless Cellbitlover.</p>
-<p align="center">If I'm in my Tommy skin, DREAM DO NOT APPROACH ME I WILL SLAP YOU /j (actually idfc as long as you're not a dick). Tommy has a conflicted opinion of c!Dream, may act aggressive (nonseriously ofc) toward anyone in a skin of him to feel comfortable around them.</p>
+<p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas with but other OSMP ppl can int.</p>
+<p align="center">If I'm in my Ranboo skins, no ships but anyone may int/c+h! Techno and Tommy especially.</p>
+<p align="center">If I'm in my Tommy skins, I may act aggressive (nonseriously ofc) toward Dream skins.</p>
 
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
