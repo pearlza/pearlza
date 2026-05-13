@@ -2,7 +2,7 @@
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
 </div>
 
-<h4><p align="center"><I>Maybe one day, someone will be gentle with my heart.</I></p></h4>
+<h4><p align="center"><I>Protecting my own heart, because no one else is.</I></p></h4>
 
 <p align="center">Preferred duo/group c+h: EMERALD DUO (comf dynamic, queerplatonic), DOOMSDAY TRIO, Death Family (familial), Bedrock Bros (comf dynamic, platonic/familial), Anarchist Syndicate, Rivals Duo, Angel Duo (comf, familial), Peer Pressure Duo (comf dynamic, platonic).</p>
 
