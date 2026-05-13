@@ -7,7 +7,7 @@
 <p align="center">Preferred duo/group c+h: EMERALD DUO (comf dynamic, queerplatonic), DOOMSDAY TRIO, Death Family (familial), Bedrock Bros (comf dynamic, platonic/familial), Anarchist Syndicate, Rivals Duo, Angel Duo (comf, familial), Peer Pressure Duo (comf dynamic, platonic).</p>
 
 <p align="center">If I'm sitting with one of my friends, please ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and will just ignore you if you attempt to interrupt.</p>
-<p align="center">c!SBI DNI. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT ONTO ME. DO NOT SIT WITH ME IF YOU SEE TECHNO AS PHIL'S KID.</p>
+<p align="center">c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT ONTO ME. DO NOT SIT WITH ME IF YOU SEE TECHNO AS PHIL'S KID.</p>
 
 <p align="center">If I'm in my Philza skins, Wilbur skins iwc and c!SBI dni. EmeraldDuo is not just platonic to me, that amount of unshakeable loyalty and the fact that those characters are very old friends feels very queerplatonic (coming from someone who has been in a QPR in the past).</p>
 <p align="center">If I'm in my Technoblade skins, anyone can int/c+h I don't mind.</p>
