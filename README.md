@@ -4,7 +4,7 @@
 
 <h4><p align="center"><I>Protecting my own heart, because no one else is.</I></p></h4>
 
-<p align="center">Preferred duo/group c+h: EMERALD DUO (comf dynamic, queerplatonic), DOOMSDAY TRIO, Death Family (familial), Bedrock Bros (comf dynamic, platonic/familial), Anarchist Syndicate, Rivals Duo, Angel Duo (comf, familial), Peer Pressure Duo (comf dynamic, platonic).</p>
+<p align="center">Preferred duo/group c+h: EMERALD DUO (comf dynamic, queerplatonic), BEDROCK BROS (comf dynamic), doomsday trio, Death Family, Anarchist Syndicate, Rivals Duo, Angel Duo, Peer Pressure Duo.</p>
 
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and will prioritize them first.</p>
 <p align="center">c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT ONTO ME. DO NOT SIT WITH ME IF YOU SEE TECHNO AS PHIL'S KID.</p>
