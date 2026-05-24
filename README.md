@@ -4,7 +4,7 @@
 
 <h4><p align="center"><I>Protecting my own heart, because no one else is.</I></p></h4>
 
-<p align="center">Preferred duo/group c+h: EMERALD DUO (comf dynamic, queerplatonic), BEDROCK BROS (comf dynamic), doomsday trio, Death Family, Anarchist Syndicate, Rivals Duo, Angel Duo, Peer Pressure Duo.</p>
+<p align="center">Preferred duo/group c+h: EMERALD DUO (comf dynamic, queerplatonic), BEDROCK BROS (comf dynamic), DOOMSDAY TRIO, Death Family, Anarchist Syndicate, Rivals Duo, Angel Duo, Peer Pressure Duo.</p>
 
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and will prioritize them first.</p>
 <p align="center">c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT ONTO ME. DO NOT SIT WITH ME IF YOU SEE TECHNO AS PHIL'S KID.</p>
@@ -18,6 +18,7 @@
 <p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas with but other OSMP ppl can int.</p>
 <p align="center">If I'm in my Ranboo skins, no ships but anyone may int/c+h! Techno and Tommy especially.</p>
 <p align="center">If I'm in my Tommy skins, I may act aggressive (nonseriously ofc) toward Dream skins.</p>
+<p align="center">If I'm in my Dream skin, George skins iwec DNF SUCKS. Everyone else is fine.</p>
 
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
