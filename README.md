@@ -18,7 +18,7 @@
 <p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas with but other OSMP ppl can int.</p>
 <p align="center">If I'm in my Ranboo skins, no ships but anyone may int/c+h! Techno and Tommy especially.</p>
 <p align="center">If I'm in my Tommy skins, I may act aggressive (nonseriously ofc) toward Dream skins.</p>
-<p align="center">If I'm in my Dream skin, George skins iwec DNF SUCKS. Everyone else is fine.</p>
+<p align="center">If I'm in my Dream skin, George skins iwc please I don't like dnf. Everyone else is fine.</p>
 
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
