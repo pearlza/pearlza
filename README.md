@@ -1,4 +1,5 @@
 <h2><p align="center">C!SBI "FAMILY" DNI DNI DNI IT'S NOT REAL I'M NOT YOUR DADZA FUCK OFF</p></h2>
+<h4><p align="center">I AM ONLY THE FATHER FIGURE OF A FEW SPECIFIC FRIENDS I DO NOT WANT TO ROLEPLAY A FAMILY DYNAMIC W RANDOS</p></h4>
 
 <div align="center">
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
