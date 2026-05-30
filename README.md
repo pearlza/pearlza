@@ -19,7 +19,7 @@
 <h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
 
 <p align="center">If I'm in my Tommy skin, I may act aggressive (nonseriously ofc) toward Dream skins. Techno is a HUGE comf.</p>
-<p align="center">If I'm in my Dream skin, George skins iwc; I don't like dnf. Everyone else is fine (Punz, Sapnap, Techno, Tommy, etc).</p>
+<p align="center">If I'm in my Dream skin, George skins iwc; I don't like dnf. Everyone else may int/c+h freely, esp Tommy bc I'm attached.</p>
 <p align="center">If I'm in my Ranboo skins, no ships but anyone may int/c+h! Techno and Tommy especially.</p>
 <p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas with but other OSMP ppl can int.</p>
 
