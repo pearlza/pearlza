@@ -16,6 +16,9 @@
 <p align="center">If I'm in my Technoblade skins, anyone can int/c+h I don't mind.</p>
 
 <h4><p align="center"><I>What is home to you?</I></p></h4>
+<div align="center">
+  <img src="https://64.media.tumblr.com/a23f8222bc227d574cd535a30e913932/00031687058f3d6c-0b/s540x810/ef5e9879fcfb0a932bcbaf44d7bcd038bbecbf50.pnj">
+</div>
 <h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
 
 <p align="center">If I'm in my Dream skin, int/c+h! George skins iwc. Any Tommy that doesn't mindlessly hate me can sit with me of course.</p>
