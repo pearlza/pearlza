@@ -37,6 +37,6 @@
 <a href="https://facetsystem.straw.page">music dump</a>
 </p>
 
-<h4><p align="center"><I>I always assume I'm unwelcome.</I></p></h4>
+<h3><p align="center"><I>I always assume I'm unwelcome.</I></p></h3>
 
 <p align="center">⫫♂Ω</p>
