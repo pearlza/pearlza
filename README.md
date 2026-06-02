@@ -2,7 +2,7 @@
 <h4><p align="center">C!TECHNO IS C!PHILZA'S OLD FRIEND NOT HIS KID YOU ANNOYING LITTLE FUCKS.</p></h4>
 
 <h4><p align="center">C!SBI "FAMILY"
-<a href="https://rentry.co/Treatise_cEmeraldduo">RUINS HIS ENTIER CHARACTER.</a>
+<a href="https://rentry.co/Treatise_cEmeraldduo">RUINS HIS ENTIRE CHARACTER.</a>
 FUCK ALL OF YOU.</p></h4>
 
 <div align="center">
