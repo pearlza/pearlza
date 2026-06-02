@@ -1,5 +1,6 @@
 <h2><p align="center">C!SBI "FAMILY" DNI DNI DNI IT'S NOT REAL I'M NOT YOUR DADZA FUCK OFF</p></h2>
-<h4><p align="center">TECHNO IS PHIL'S BEST FRIEND NOT HIS KID YOU ANNOYING LITTLE FREAKS.</p></h4>
+<h4><p align="center">C!TECHNO IS C!PHILZA'S OLD FRIEND NOT HIS KID YOU ANNOYING LITTLE FUCKS.</p></h4>
+<h4><p align="center">C!SBI RUINS HIS ENTIRE CHARACTER FUCK ALL OF YOU.</p></h4>
 
 <div align="center">
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
@@ -7,13 +8,13 @@
 
 <h3><p align="center">I'M BACK IN THE FUCKING BUILDING AGAIN</p></h3>
 
-<p align="center">Preferred duo/group c+h: EMERALDDUO (comf dynamic, queerplatonic), BEDROCK BROS (comf dynamic), DOOMSDAY TRIO, DISCDUO, Death Family, Anarchist Syndicate, Rivals Duo, Angel Duo, Peer Pressure Duo.</p>
+<p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid Misia, familial), BEDROCK BROS (comf dynamic), DISCDUO, Death Family, Rivals Duo, Doomsday Trio, Peer Pressure Duo, Anarchist Syndicate.</p>
 
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and will prioritize them first.</p>
 <p align="center">c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT ONTO ME. DO NOT SIT WITH ME IF YOU SEE TECHNO AS PHIL'S KID.</p>
 
 <p align="center">If I'm in my Philza skins, Wilbur skins iwc and c!SBI dni. EmeraldDuo is not just platonic to me, that amount of unshakeable loyalty and the fact that those characters are very old friends feels very queerplatonic (coming from someone who has been in a QPR in the past).</p>
-<p align="center">If I'm in my Technoblade skins, anyone can int/c+h I don't mind.</p>
+<p align="center">If I'm in my Technoblade skins, anyone can int/c+h except for philzas that think I'm their kid (I'M A FUCKING STRANGER WHO SEES THEM AS QUEERPLATONIC).</p>
 
 <h4><p align="center"><I>What is home to you?</I></p></h4>
 <div align="center">
