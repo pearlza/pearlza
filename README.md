@@ -9,7 +9,9 @@ FUCK ALL OF YOU.</p></h4>
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
 </div>
 
-<h3><p align="center">I'M BACK IN THE FUCKING BUILDING AGAIN</p></h3>
+<h4><p align="center">
+<a href="https://rentry.co/justacrow">I'M BACK IN THE FUCKING BUILDING AGAIN</a>
+</p></h4>
 
 <p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid Misia, familial), BEDROCK BROS (comf dynamic), DISCDUO, Death Family, Rivals Duo, Doomsday Trio, Peer Pressure Duo, Anarchist Syndicate.</p>
 
