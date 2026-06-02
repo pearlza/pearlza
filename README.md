@@ -5,7 +5,7 @@
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
 </div>
 
-<h3><p align="center">ᴘʀᴏᴛᴇᴄᴛɪɴɢ ᴍʏ ᴏᴡɴ ʜᴇᴀʀᴛ, ʙᴄ ɴᴏ ᴏɴᴇ ᴇʟsᴇ ɪs.</p></h3>
+<h3><p align="center">I'M BACK IN THE FUCKING BUILDING AGAIN</p></h3>
 
 <p align="center">Preferred duo/group c+h: EMERALDDUO (comf dynamic, queerplatonic), BEDROCK BROS (comf dynamic), DOOMSDAY TRIO, DISCDUO, Death Family, Anarchist Syndicate, Rivals Duo, Angel Duo, Peer Pressure Duo.</p>
 
