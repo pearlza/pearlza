@@ -1,6 +1,9 @@
 <h2><p align="center">C!SBI "FAMILY" DNI DNI DNI IT'S NOT REAL I'M NOT YOUR DADZA FUCK OFF</p></h2>
 <h4><p align="center">C!TECHNO IS C!PHILZA'S OLD FRIEND NOT HIS KID YOU ANNOYING LITTLE FUCKS.</p></h4>
-<h4><p align="center">C!SBI RUINS HIS ENTIRE CHARACTER FUCK ALL OF YOU.</p></h4>
+
+<h4><p align="center">C!SBI
+<a href="https://rentry.co/Treatise_cEmeraldduo">RUINS HIS ENTIER CHARACTER.</a>
+FUCK ALL OF YOU.</p></h4>
 
 <div align="center">
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
