@@ -1,5 +1,5 @@
 <h2><p align="center">C!SBI "FAMILY" DNI DNI DNI IT'S NOT REAL I'M NOT YOUR DADZA FUCK OFF</p></h2>
-<h4><p align="center">rebranded to c!dream just to keep the parasocial "c!sbi family" people off my ass.</p></h4>
+<h4><p align="center">TECHNO IS PHIL'S BEST FRIEND NOT HIS KID YOU ANNOYING LITTLE FREAKS.</p></h4>
 
 <div align="center">
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
