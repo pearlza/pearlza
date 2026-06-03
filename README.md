@@ -1,15 +1,16 @@
 <h2><p align="center">C!SBI "FAMILY" DNI DNI DNI IT'S NOT REAL I'M NOT YOUR DADZA FUCK OFF</p></h2>
 <h4><p align="center">C!TECHNO IS C!PHILZA'S
 <a href="https://rentry.co/Treatise_cEmeraldduo">OLD FRIEND</a>
-NOT HIS KID THE CC LITERALLY SAID IT HIMSELF AFTER PPL KEPT BUTCHERING HIS CHARACTER.</p></h4>
-
+NOT HIS KID THE CC LITERALLY SAID IT HIMSELF AFTER PPL KEPT BUTCHERING HIS CHARACTER. AND
+<a href="https://rentry.co/justacrow">I</a>
+FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 <div align="center">
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
 </div>
 
 <h4><p align="center">
-<a href="https://rentry.co/justacrow">I'M BACK IN THE FUCKING BUILDING AGAIN</a>
-</p></h4>
+<a href="https://rentry.co/justacrow">I'M</a>
+BACK IN THE FUCKING BUILDING AGAIN I HATE IT HERE</p></h4>
 
 <p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid Misia, familial), BEDROCK BROS (comf dynamic), DISCDUO, Death Family, Rivals Duo, Doomsday Trio, Peer Pressure Duo, Anarchist Syndicate.</p>
 
