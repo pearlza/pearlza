@@ -2,16 +2,14 @@
 <h4><p align="center">C!TECHNO IS C!PHILZA'S
 <a href="https://rentry.co/Treatise_cEmeraldduo">OLD FRIEND,</a>
 NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE OLD FRIENDS AFTER PPL KEPT BUTCHERING HIS CHARACTER WITH THE STUPID FAMILY HEADCANON.</p></h4>
-<h4><p align="center">AND
-<a href="https://rentry.co/justacrow">I</a>
-FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
+
 <div align="center">
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
 </div>
 
-<h4><p align="center">
-<a href="https://rentry.co/justacrow">I'M</a>
-BACK IN THE FUCKING BUILDING AGAIN I HATE IT HERE</p></h4>
+<h4><p align="center">AND
+<a href="https://rentry.co/justacrow">I</a>
+FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 
 <p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid Misia, familial), BEDROCK BROS (comf dynamic), DISCDUO, Death Family, Rivals Duo, Doomsday Trio, Peer Pressure Duo, Anarchist Syndicate.</p>
 
@@ -44,5 +42,9 @@ BACK IN THE FUCKING BUILDING AGAIN I HATE IT HERE</p></h4>
 </p>
 
 <h3><p align="center"><I>I always assume I'm unwelcome.</I></p></h3>
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/ec80fcd68c018e366150cb508e9f27d7/b867b817c0e217ff-f0/s2048x3072/e02136adba7de39128484369df27e96cd7f530bd.pnj">
+</div>
 
 <p align="center">⫫♂Ω</p>
