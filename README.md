@@ -48,3 +48,7 @@ FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 </div>
 
 <p align="center">⫫♂Ω</p>
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/4845e7550277aac7c44ae7573fc3d48c/f397535fe3eabcf3-d3/s250x400/240ca2a76ec1a2251560555a7568ade8ae397e5c.pnj">
+</div>
