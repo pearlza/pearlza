@@ -30,6 +30,8 @@ FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 <p align="center">If I'm in my Ranboo skins, no ships, but anyone may int/c+h! Techno and Tommy especially.</p>
 <p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas with but other OSMP ppl can int.</p>
 
+<h4><p align="center"><b>Please don't just friend me out of the blue, we have to have interacted somewhat first before I even consider it.</b></p></h4>
+
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
 <p align="center">I do not support any creators I don't know enough about (nwss AND nsss, always disliked cc!wilbur's general vibe and attention seeking and whining and the way he would treat people sometimes even publicly on streams, and only tolerated him during dsmp phase bc he was around the people I actually liked watching. know nothing about shelby so don't care about her at all). If you like cc!wilbur, I don't really care just don't talk to me as if he's a good person or can do no wrong because he's human, he definitely can and has. Don't care about c!wilbur much (I know that may sound odd coming from a philza, but then again I hate forced family dynamics and cc!wilbur was always pushing sbi "family" when techno didn't want it), but I don't mind if people like or kin c!wilbur. Don't really like cc!dream at all. I'm sure everyone did or said shit they're not proud of after techno died bc everything fell apart (Though cc!dream doesn't really seem sorry for calling people really rude things so like... erm). Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
