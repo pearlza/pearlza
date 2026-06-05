@@ -21,7 +21,7 @@ FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 
 <h4><p align="center"><I>What is home to you?</I></p></h4>
 <div align="center">
-  <img src="https://64.media.tumblr.com/a23f8222bc227d574cd535a30e913932/00031687058f3d6c-0b/s540x810/ef5e9879fcfb0a932bcbaf44d7bcd038bbecbf50.pnj">
+  <img src="https://i0.wp.com/www.cobaltjade.com/wp-content/uploads/2022/06/206246-e1661382126739.jpg?resize=400%2C313">
 </div>
 <h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
 
@@ -51,7 +51,3 @@ FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 </div>
 
 <p align="center">⫫♂Ω</p>
-
-<div align="center">
-  <img src="https://64.media.tumblr.com/4845e7550277aac7c44ae7573fc3d48c/f397535fe3eabcf3-d3/s250x400/240ca2a76ec1a2251560555a7568ade8ae397e5c.pnj">
-</div>
