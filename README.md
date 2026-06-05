@@ -11,7 +11,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <a href="https://rentry.co/justacrow">I</a>
 FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 
-<p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid Misia, familial), DISCDUO (again, only my kid Misia), BEDROCK BROS (comf dynamic), Death Family, Rivals Duo, Doomsday Trio, Peer Pressure Duo, Anarchist Syndicate.</p>
+<p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid Misia, familial), DISCDUO (again, only my kid Misia), BEDROCK BROS (comf dynamic), Death Family, Rivals Duo, Doomsday Trio, Peer Pressure Duo.</p>
 
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and will prioritize them first.</p>
 <p align="center">c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT ONTO ME. DO NOT SIT WITH ME IF YOU SEE TECHNO AS PHIL'S KID.</p>
