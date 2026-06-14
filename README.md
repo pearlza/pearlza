@@ -11,6 +11,15 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <a href="https://rentry.co/justacrow">I</a>
 FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 
+<p align="center">
+<a href="https://rentry.co/intcuddleSMP">int/cuddle rules</a>
+<a href="https://rentry.co/justacrow">philza rentry</a>
+<a href="https://facetsystem.straw.page">music dump strawpage</a>
+<a href="https://facet.atabook.org">atabook</a>
+<a href="https://en.pronouns.page/@CapAmarav">pronouns page</a>
+<a href="https://rentry.co/Treatise_cEmeraldduo">the treatise from hell.</a>
+</p>
+
 <p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid Misia, familial), DISCDUO (again, only my kid Misia), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family, Rivals Duo, Peer Pressure Duo, Anarchist Syndicate.</p>
 
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and WILL prioritize them over you.</p>
