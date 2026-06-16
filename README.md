@@ -7,9 +7,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
   <img src="https://media1.tenor.com/m/zMyKhOShcmsAAAAC/philza-ph1lza.gif">
 </div>
 
-<h4><p align="center">AND
-<a href="https://rentry.co/justacrow">I</a>
-FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
+<h4><p align="center">AND I FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 
 <p align="center">
 <a href="https://rentry.co/intcuddleSMP">int/cuddle rules</a>
