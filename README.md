@@ -36,6 +36,7 @@ FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 <h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
 
 <p align="center">If I'm in my Dream skins, int/c+h! DNF iwc. Please nobody randomly kiss me or act romantic to me that's weird as hell. Tommy skins can int idm.</p>
+<p align="center">If I'm in my Chayanne skin: Philza, Tallulah, Techno, Missa or any of the other eggs PLEASE INT/C+H! DEATHFAMILY+TECHNO :D</p>
 <p align="center">If I'm in my Tommy skin, I may act aggressive (nonseriously ofc) toward Dream skins. Techno is a HUGE comf.</p>
 <p align="center">If I'm in my Tubbo skin, QSMP AND LIFESTEAL PPL HE HAS MET PLS INT :D!!! AND NO SHIPS PLS</p>
 <p align="center">If I'm in my Ranboo skins, no ships, but anyone may int/c+h! Techno and Tommy especially.</p>
