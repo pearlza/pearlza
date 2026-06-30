@@ -26,6 +26,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 <p align="center">If I'm in my Philza skins, Wilbur skins iwc and c!SBI dni. EmeraldDuo is not just platonic to me, that amount of unshakeable loyalty and the fact that those characters are very old friends feels very queerplatonic (coming from someone who has been in a QPR in the past).</p>
 <p align="center">If I'm in my Technoblade skins, anyone can int/c+h except for philzas that think I'm their kid (I'M A FUCKING STRANGER WHO SEES THEM AS QUEERPLATONIC).</p>
+<p align="center"><B>ANYONE WHO SEES PHILZA & TECHNO AS FATHER AND SON STRICT DNI. THAT MAKES ME EXTREMELY UNCOMFORTABLE.</B></p>
 
 <h4><p align="center"><I>What is home to you?</I></p></h4>
 <div align="center">
@@ -33,18 +34,18 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 </div>
 <h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
 
-<p align="center">If I'm in my Dream skins, int/c+h! DNF iwc. Please nobody randomly kiss me or act romantic to me that's weird as hell. Tommy skins can int idm.</p>
-<p align="center">If I'm in my Chayanne skin: Philza, Tallulah, Techno, Missa or any of the other eggs PLEASE INT/C+H! DEATHFAMILY+TECHNO :D</p>
-<p align="center">If I'm in my Tommy skin, I may act aggressive (nonseriously ofc) toward Dream skins. Techno is a HUGE comf.</p>
+<p align="center">If I'm in my Dream skins, int/c+h! George iwc. Please no randos kiss me or act romantic to me that's weird as hell. TECHNO PLS INT! The only Punz I've seen is my friend and ofc they can int. Tommy skins can int idm.</p>
+<p align="center">If I'm in my Chayanne skin: Philza, Tallulah, Techno, Missa or any of the other eggs PLEASE INT/C+H! DEATHFAMILY+TECHNO!!! q!wilbur iwc I am not your brother fuck off.</p>
+<p align="center">If I'm in my Tommy skin, I may act aggressive (nonseriously ofc) toward Dream skins. Techno and Ranboo are comfs, Dream skins are... hit or miss tbh so just assume he's on thin ice.</p>
 <p align="center">If I'm in my Tubbo skin, QSMP AND LIFESTEAL PPL HE HAS MET PLS INT :D!!! AND NO SHIPS PLS</p>
-<p align="center">If I'm in my Ranboo skins, no ships, but anyone may int/c+h! Techno and Tommy especially.</p>
+<p align="center">If I'm in my Ranboo skins, no ships/tubbo iwc, but anyone may int/c+h! Techno and Tommy especially.</p>
 <p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas with but other OSMP ppl can int.</p>
 
-<h4><p align="center"><b>Please don't just friend me out of the blue, we have to have interacted somewhat first before I even consider it.</b></p></h4>
+<h4><p align="center"><b>Please don't just friend me out of the blue without even speaking to me first, we have to have interacted somewhat first before I even consider it, especially if you have no socials indicating your stances on certain fandom opinions that I feel very strongly about.</b></p></h4>
 
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
-<p align="center">I do not support any creators I don't know enough about (nwss AND nsss, always disliked cc!wilbur's general vibe and attention seeking and whining and the way he would treat people sometimes even publicly on streams, and only tolerated him during dsmp phase bc he was around the people I actually liked watching. know nothing about shelby so don't care about her at all). If you like cc!wilbur, I don't really care just don't talk to me as if he's a good person or can do no wrong because he's human, he definitely can and has. Don't care about c!wilbur much (I know that may sound odd coming from a philza, but then again I hate forced family dynamics and cc!wilbur was always pushing sbi "family" when techno didn't want it), but I don't mind if people like or kin c!wilbur. Don't like or support cc!dream at all. I'm sure everyone did or said shit they're not proud of after techno died bc everything fell apart (Though cc!dream doesn't really seem sorry for calling people really rude things so like... erm). I HATEEEE both cc!forever and q!forever what the HELL was wrong with him?</p>
+<p align="center">I do not support any creators I don't know enough about (nwss AND nsss, always disliked cc!wilbur's general vibe and attention seeking and whining and the way he would treat people sometimes even publicly on streams, and only tolerated him during dsmp phase bc he was around the people I actually liked watching. know nothing about shelby so don't care about her at all). If you like cc!wilbur, I don't really care just don't talk to me as if he's a good person or can do no wrong because he's human, he definitely can and has. Also I hate forced family dynamics and cc!wilbur was always pushing sbi "family" onto the other three when techno didn't want it. I don't mind if people like or kin c!wilbur tho. Don't like or support cc!dream at all. I'm sure everyone did or said shit they're not proud of after techno died bc everything fell apart (Though cc!dream doesn't really seem sorry for calling people really rude things so like... erm). I HATEEEE both cc!forever and q!forever what the HELL was wrong with him?</p>
 <p align="center">Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 
 <p align="center">
