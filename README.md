@@ -57,10 +57,6 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <p align="center">I do not support any creators I don't know enough about (nwss AND nsss, always disliked cc!wilbur's general vibe and attention seeking and whining and the way he would treat people sometimes even publicly on streams, and only tolerated him during dsmp phase bc he was around the people I actually liked watching. know nothing about shelby so don't care about her at all). If you like cc!wilbur, I don't really care just don't talk to me as if he's a good person or can do no wrong because he's human, he definitely can and has. Also I hate forced family dynamics and cc!wilbur was always pushing sbi "family" onto the other three when techno didn't want it. I don't mind if people like or kin c!wilbur tho. Don't like or support cc!dream at all. I'm sure everyone did or said shit they're not proud of after techno died bc everything fell apart (Though cc!dream doesn't really seem sorry for calling people really rude things so like... erm). I HATEEEE both cc!forever and q!forever what the HELL was wrong with him?</p>
 <p align="center">Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 
-<p align="center">
-<a href="https://rentry.co/philzasblinkies">shinies hoard</a>
-</p>
-
 <h3><p align="center"><I>I always assume I'm unwelcome.</I></p></h3>
 
 <div align="center">
