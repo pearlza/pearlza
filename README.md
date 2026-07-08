@@ -69,7 +69,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
   <img src="https://64.media.tumblr.com/ec80fcd68c018e366150cb508e9f27d7/b867b817c0e217ff-f0/s2048x3072/e02136adba7de39128484369df27e96cd7f530bd.pnj">
 </div>
 
-<h4 align="center">If you made it this far, you are insanely pog, have an avocado toast.</h4>
+<h4 align="center">If you made it this far and actually read all of that shit, you are insanely pog, have an avocado toast.</h4>
 <div align="center">
   <img src="https://64.media.tumblr.com/bfcd19bade3c0ebbd13f3c1d3d90f4ce/b98213e4decf3498-be/s250x400/7907ca270b549576b31d155b33e34ef84c49d3d2.pnj">
 </div>
