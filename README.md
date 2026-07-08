@@ -69,5 +69,5 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 <h4 align="center">If you made it this far, you are insanely pog, have an avocado toast.</h4>
 <div align="center">
-  <img src="https://static.wikia.nocookie.net/croptopia/images/b/b9/Avocado_toast_Large.png/revision/latest?cb=20260130192421">
+  <img src="https://64.media.tumblr.com/bfcd19bade3c0ebbd13f3c1d3d90f4ce/b98213e4decf3498-be/s250x400/7907ca270b549576b31d155b33e34ef84c49d3d2.pnj">
 </div>
