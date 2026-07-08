@@ -18,6 +18,8 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <a href="https://rentry.co/Treatise_cEmeraldduo">the treatise from hell.</a>
 </p>
 
+***
+
 <p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid Misia, familial), DISCDUO (again, only my kid Misia), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family, Rivals Duo, Peer Pressure Duo, Anarchist Syndicate.</p>
 
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and WILL prioritize them over you.</p>
@@ -28,11 +30,15 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <p align="center">If I'm in my Technoblade skins, anyone can int/c+h except for philzas that think I'm their kid (I'M A FUCKING STRANGER WHO SEES THEM AS QUEERPLATONIC).</p>
 <p align="center"><B>ANYONE WHO SEES PHILZA & TECHNO AS FATHER AND SON STRICT DNI. THAT MAKES ME EXTREMELY UNCOMFORTABLE.</B></p>
 
+***
+
 <h4><p align="center"><I>What is home to you?</I></p></h4>
 <div align="center">
   <img src="https://i0.wp.com/www.cobaltjade.com/wp-content/uploads/2022/06/206246-e1661382126739.jpg?resize=400%2C313">
 </div>
 <h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
+
+***
 
 <p align="center">If I'm in my Dream skins, int/c+h! George iwc. Please no randos kiss me or act romantic to me that's weird as hell. TECHNO PLS INT! The only Punz I've seen is my friend and ofc they can int. Tommy skins can int idm.</p>
 <p align="center">If I'm in my Chayanne skin: Philza, Tallulah, Techno, Missa or any of the other eggs PLEASE INT/C+H! DEATHFAMILY+TECHNO!!! q!wilbur iwc I am not your brother fuck off.</p>
@@ -42,6 +48,9 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas with but other OSMP ppl can int.</p>
 
 <h4><p align="center"><b>Please don't just friend me out of the blue without even speaking to me first, we have to have interacted somewhat first before I even consider it, especially if you have no socials indicating your stances on certain fandom opinions that I feel very strongly about.</b></p></h4>
+<h4><p align="center"><b>That being said, please don't be afraid to start a chat with me if we have similar interests! I have been informed by some friends that they were too intimidated by my cool skins(? I DO NOT HAVE AURA WDYM BRO PLS) to talk to me at first and that's not the vibe I'm trying to go for at all ;-; I swear I'm friendly I'm just wary of parasocial weirdos who come at me with the <s>c!sbi</s> family headcanon</b></p></h4>
+
+***
 
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
