@@ -51,6 +51,8 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <p align="center">If I'm in my Ranboo skins, no ships/tubbo iwc, but anyone may int/c+h! Techno and Tommy especially.</p>
 <p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas with but other OSMP ppl can int.</p>
 
+***
+
 <h4><p align="center"><b>Please don't just friend me out of the blue without even speaking to me first, we have to have interacted somewhat first before I even consider it, especially if you have no socials indicating your stances on certain fandom opinions that I feel very strongly about.</b></p></h4>
 <h4><p align="center"><b>That being said, please don't be afraid to start a chat with me if we have similar interests! I have been informed by some friends that they were too intimidated to talk to me at first and that's not the vibe I'm trying to go for at all ;-; I swear I'm friendly I'm just wary of parasocial weirdos who come at me with the <s>c!sbi</s> family headcanon</b></p></h4>
 
