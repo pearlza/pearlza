@@ -15,7 +15,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <a href="https://rentry.co/justacrow">philza rentry</a>
 <a href="https://facet.atabook.org">atabook</a>
 <a href="https://en.pronouns.page/@CapAmarav">pronouns page</a> •
-<b><a href="https://rentry.co/Treatise_cEmeraldduo">the treatise from hell.</a></b>
+<b><a href="https://rentry.co/Treatise_cEmeraldduo">The Treatise From Hell.</a></b>
 🖋️</p>
 
 ***
