@@ -11,7 +11,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 <p align="center">🖋️
 <b><a href="https://facetsystem.straw.page">🎵♪ STRAWPAGE ♪🎵</a></b> •
-<a href="https://rentry.co/intcuddleSMP">int/cuddle rules</a>
+<a href="https://rentry.co/intcuddleSMP">int/c+h rules</a>
 <a href="https://rentry.co/justacrow">philza rentry</a>
 <a href="https://facet.atabook.org">atabook</a>
 <a href="https://en.pronouns.page/@CapAmarav">pronouns page</a> •
@@ -60,9 +60,6 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <p align="center">
 <a href="https://rentry.co/philzasblinkies">shinies hoard</a>
 </p>
-<p align="center">
-<a href="https://facetsystem.straw.page">music dump</a>
-</p>
 
 <h3><p align="center"><I>I always assume I'm unwelcome.</I></p></h3>
 
@@ -70,4 +67,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
   <img src="https://64.media.tumblr.com/ec80fcd68c018e366150cb508e9f27d7/b867b817c0e217ff-f0/s2048x3072/e02136adba7de39128484369df27e96cd7f530bd.pnj">
 </div>
 
-<p align="center">⫫♂Ω</p>
+<h3 align="center">If you made it this far, you are very pog, have an avocado toast.</h3>
+<div align="center">
+  <img src="https://static.wikia.nocookie.net/croptopia/images/b/b9/Avocado_toast_Large.png/revision/latest?cb=20260130192421">
+</div>
