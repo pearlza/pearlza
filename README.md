@@ -11,10 +11,10 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 <p align="center">🖋️
 <b><a href="https://facetsystem.straw.page">🎵♪ STRAWPAGE ♪🎵</a></b> •
-<a href="https://rentry.co/intcuddleSMP">int/c+h rules</a>
+<a href="https://rentry.co/intcuddleSMP">int/c+h</a>
 <a href="https://rentry.co/justacrow">philza rentry</a>
 <a href="https://facet.atabook.org">atabook</a>
-<a href="https://en.pronouns.page/@CapAmarav">pronouns page</a> •
+<a href="https://en.pronouns.page/@CapAmarav">pronouns</a> •
 <b><a href="https://rentry.co/Treatise_cEmeraldduo">The Treatise From Hell.</a></b>
 🖋️</p>
 
