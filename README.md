@@ -26,7 +26,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 <p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid 
 <a href="https://github.com/mis4nthrope">Misia</a>
-/fam), DISCDUO (<i>ONLY</i> my kid Misia /fam), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family, Rivals Duo, Peer Pressure Duo, Anarchist Syndicate.</p>
+/fam), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family, Rivals Duo, Peer Pressure Duo, Anarchist Syndicate.</p>
 
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and WILL prioritize them over you.</p>
 <p align="center">Don't randomly try to roleplay with me for the love of god. If I join in an rp then I join it but don't assume I'm open to it especially if I'm sitting with Misia.</p>
@@ -46,7 +46,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 ***
 
-<p align="center">If I'm in my Dream skin, int/c+h! George iwec unless I know you. Please no randos kiss me or act romantic to me that's weird as hell. TECHNO PLS INT! The only Punz I've seen is my friend and ofc they can int. Tommy skins can int but do not c+h unless I know you. If you ship dream and tommy do not touch or sit with me what the hell is wrong with you. Keep it to yourself and don't involve me in it.</p>
+<p align="center">If I'm in my Dream skin, int/c+h! DiscDuo on thin ice, only comfortable with Misia/other friends that aren't trying to rp with me. George dni unless I know you. Please no randos kiss me or act romantic to me that's weird as hell. TECHNO PLS INT! The only Punz I've seen is my friend and ofc they can int. Tommy skins can int but do not c+h unless I know you. If you ship dream and tommy do not touch or sit with me what the hell is wrong with you. Keep it to yourself and don't involve me in it.</p>
 <p align="center">If I'm in my Chayanne skin: Philza, Tallulah, Techno, Missa or any of the other eggs PLEASE INT/C+H! DEATHFAMILY+TECHNO!!! q!wilbur dni I am not your brother fuck off.</p>
 <p align="center">If I'm in my Tommy skin, I may act aggressive (nonseriously ofc) toward Dream skins. Techno and Ranboo are comfs. I don't... mind Tubbo? but I don't really see the appeal of ClingyDuo, sorry. Dream skins are... hit or miss tbh so just assume he's on thin ice.</p>
 <p align="center">If I'm in my Ashswagg skin, QSMP AND UU PPL HE HAS MET PLS INT/C+H :D!!! Squiddo skins ok to c+h tho please remember I don't want to be actually flirted with by a stranger.</p>
