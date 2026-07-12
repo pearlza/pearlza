@@ -46,7 +46,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 ***
 
-<p align="center">Me sitting with Misia is and always will be familial, and we are not whatever weird interpretation you have of whatever characters we happen to be when you see us. I am their online parent and they are my kid. It has nothing to do with characters. Not every person you see is in character or trying to roleplay. Learn the difference between characters and real people.
+<p align="center">Me sitting with Misia is and always will be familial, and we are not whatever weird interpretation you have of whatever characters we happen to be when you see us. I am their online parent and they are my kid. It has nothing to do with characters. Not every person you see is in character or trying to roleplay. Learn the difference between characters and real people. Projecting a character you like onto a complete stranger who merely finds comfort in presenting as them online is really fucking weird btw! Alters in a system are not and will never be "character but in real life." We're people and we don't want to be viewed as whatever weird fucking interpretation you have of a character.</p>
 
 ***
 
