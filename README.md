@@ -49,6 +49,8 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 <p align="center">Me sitting with Misia is and always will be familial, and we are not whatever weird interpretation you have of whatever characters we happen to be when you see us. I am their online parent and they are my kid. It has nothing to do with characters. Not every person you see is in character or trying to roleplay. Learn the difference between characters and real people. Projecting a character you like onto a complete stranger who merely finds comfort in presenting as them online is really fucking weird btw! Alters in a system are not and will never be "character but in real life." We're people and we don't want to be viewed as whatever weird fucking interpretation you have of a character.</p>
 
+<p align="center">DNI if you unironically call anyone 18-21 unc, not only does it make me extremely uncomfortable but all it tells me is that you're a child who doesn't understand that especially with neurodivergent people, mental age does not always equal physical age and people that age or above do not always have nieces or nephews irl so it's factually incorrect along with being really weird to say.</p>
+
 ***
 
 <p align="center">If I'm in my Dream skin, int/c+h! DiscDuo on thin ice, only comfortable with my kid Misia/other friends that aren't trying to rp with me. George dni unless I know you. Please no randos kiss me or act romantic to me that's weird as hell. TECHNO PLS INT! The only Punz I've seen is my friend and ofc they can int. Tommy skins can int but do not c+h unless I know you. If you ship dream and tommy do not touch or sit with me. Keep that shit away from my friends and I.</p>
