@@ -49,9 +49,6 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 <p align="center">Me sitting with Misia is and always will be familial, and we are not whatever weird interpretation you have of whatever characters we happen to be when you see us. I am their online parent and they are my kid. It has nothing to do with characters. Not every person you see is in character or trying to roleplay. Learn the difference between characters and real people. Projecting a character you like onto a complete stranger who merely finds comfort in presenting as them online is really fucking weird btw! Alters in a system are not and will never be "character but in real life." We're people and we don't want to be viewed as whatever weird fucking interpretation you have of a character.</p>
 
-<p align="center">DNI if you unironically call someone as young as 18-21 "unc" (overused and factually incorrect in almost all cases, basically just a brainrot term), constantly use brainrot words/abbreviations for normal already short words, or consistently misspell some of the easiest possible words in the English language or replace them with words that sound the same but mean something completely different. I'd prefer to only interact with people who have a similar maturity and language education level to me.</p>
-<p align="center">Seriously, how are people on the other side of the globe whose first language isn't even English spelling better that half the teenagers on the internet whose first language IS English? The level of English education teenagers in the US have is basically below elementary atp. What will motivate kids to be better? At least be smarter than the people you dislike out of spite, if nothing else.</p>
-
 ***
 
 <p align="center">If I'm in my Dream skin, int/c+h! DiscDuo on thin ice, only comfortable with my kid Misia/other friends that aren't trying to rp with me. George dni unless I know you. Please no randos kiss me or act romantic to me that's weird as hell. TECHNO PLS INT! The only Punz I've seen is my friend and ofc they can int. Tommy skins can int but do not c+h unless I know you. If you ship dream and tommy do not touch or sit with me. Keep that shit away from my friends and I.</p>
@@ -66,6 +63,11 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 <h4><p align="center"><b>Please don't just friend me out of the blue without even speaking to me first, we have to have interacted somewhat first before I even consider it, especially if you have no socials indicating your stances on certain fandom opinions that I feel very strongly about.</b></p></h4>
 <h4><p align="center"><b>That being said, please don't be afraid to start a chat with me if we have similar interests! I have been informed by some friends that they were too intimidated to talk to me at first, and that's not the vibe I'm trying to go for at all ;-; I swear I'm friendly I'm just wary of parasocial weirdos who come at me with the <s>c!sbi</s> family headcanon</b></p></h4>
+
+***
+
+<p align="center">DNI if you unironically call someone as young as 18-21 "unc" (overused and factually incorrect in almost all cases, basically just a brainrot term), constantly use brainrot words/abbreviations for normal already short words, or consistently misspell some of the easiest possible words in the English language or replace them with words that sound the same but mean something completely different. I'd prefer to only interact with people who have a similar maturity and language education level to me.</p>
+<p align="center">Seriously, how are people on the other side of the globe whose first language isn't even English spelling better that half the teenagers on the internet whose first language IS English? The level of English education teenagers in the US have is basically below elementary atp. What will motivate kids to be better? At least be smarter than the people you dislike out of spite, if nothing else.</p>
 
 ***
 
