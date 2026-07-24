@@ -27,7 +27,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 <p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (just my kid 
 <a href="https://github.com/mis4nthrope">Misia</a>
-/fam), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno).</p>
+/fam), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Allium Duo (Tommy, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno).</p>
 
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and WILL prioritize them over you.</p>
 <p align="center">Don't randomly try to roleplay with me for the love of god. If I join in an rp then I join it but don't assume I'm open to it especially if I'm sitting with Misia.</p>
