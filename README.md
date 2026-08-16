@@ -62,7 +62,8 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 ***
 
 <h4><p align="center"><b>Please don't just friend me out of the blue without even speaking to me first, we have to have interacted somewhat first before I even consider it, especially if you have no socials indicating your stances on certain fandom opinions that I feel very strongly about.</b></p></h4>
-<h4><p align="center"><b>That being said, please don't be afraid to start a chat with me if we have similar interests! I have been informed by some friends that they were too intimidated to talk to me at first, and that's not the vibe I'm trying to go for at all ;-; I swear I'm friendly I'm just wary of parasocial weirdos who come at me with the <s>c!sbi</s> family headcanon</b></p></h4>
+<h4><p align="center"><b>That being said, please don't be afraid to start a chat with me if we have similar interests! I have been informed by some friends that they were too intimidated to talk to me at first, and that's not the vibe I'm trying to go for at all ;-; I swear I'm friendly I'm just wary of parasocial creeps who come at me with the <s>c!sbi</s> family headcanon</b></p></h4>
+<p align="center"><I>Also wary of the dream/tommy shippers bc some people apparently still think that's normal... everyone I've seen who ships that shit I assume is a traumatized teenager who should be trying to protect themselves, NOT feeding into that mindset. I am an adult around that age and I do NOT want you PLEASE STOP.</I></p>
 
 ***
 
