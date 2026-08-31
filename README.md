@@ -1,4 +1,11 @@
-<h2><p align="center">C!SBI "FAMILY" DNI IT'S NOT REAL I'M NOT YOUR DADZA OR SON FUCK OFF</p></h2>
+<h3><p align="center">︵︵︵︵︵︵︵︵︵︵︵︵<br/>
+✧ ˖˚₊⭒˙｡⭒ 𝐁𝐋𝐎𝐓 𝐎𝐔𝐓 𝐓𝐇𝐄 𝐒𝐔𝐍 ⭒｡˙⭒₊˚˖ ✧<br/>
+✧ ˖˚₊⭒˙｡⭒ 𓆩 𝐖𝐈𝐓𝐇 𝐘𝐎𝐔𝐑 𝐖𝐈𝐍𝐆𝐒 𓆪 ⭒｡˙⭒₊˚˖ ✧<br/>
+︶︶︶︶︶︶︶︶︶︶︶︶</p></h3>
+
+***
+<h3><p align="center">C!SBI "FAMILY" DNI IT'S NOT REAL I'M NOT YOUR DADZA OR SON FUCK OFF</p></h3>
+
 <h4><p align="center">C!TECHNO IS C!PHILZA'S
 <a href="https://rentry.co/Treatise_cEmeraldduo">OLD FRIEND,</a>
 NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE CANONICALLY OLD FRIENDS AFTER PPL KEPT BUTCHERING HIS CHARACTER WITH THE STUPID FAMILY HEADCANON.</p></h4>
