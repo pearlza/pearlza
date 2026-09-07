@@ -89,7 +89,7 @@ c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids tha
 
 ***
 
-<h3><p align="center">「 <I>𝕴 𝖆𝖒 𝕭𝖑𝖔𝖔𝖉, 𝕴 𝖆𝖒 𝕯𝖊𝖆𝖙𝖍, 𝕴 𝖆𝖒 𝕮𝖔𝖓𝖙𝖗𝖔𝖑.</I> 」<br/>
+<h3><p align="center">「 <I>𝕴 𝖆𝖒 𝕯𝖊𝖆𝖙𝖍 𝖆𝖓𝖉 𝕭𝖑𝖔𝖔𝖉𝖑𝖚𝖘𝖙 𝖆𝖓𝖉 𝕮𝖔𝖓𝖙𝖗𝖔𝖑.</I> 」<br/>
 「 <I>𝕴 𝖆𝖒 𝖙𝖍𝖊 𝖈𝖔𝖓𝖈𝖊𝖕𝖙 𝖔𝖋 𝖆𝖑𝖑 𝖙𝖍𝖆𝖙 𝖞𝖔𝖚 𝖋𝖊𝖆𝖗.</I> 」<br/>
 「 <I>𝕴 𝖆𝖒 𝖙𝖍𝖊 𝖉𝖊𝖎𝖙𝖞 𝖞𝖔𝖚 𝖍𝖆𝖛𝖊 𝖋𝖔𝖗𝖌𝖔𝖙𝖙𝖊𝖓.</I> 」</p></h3>
 
