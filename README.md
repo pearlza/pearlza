@@ -87,7 +87,8 @@ c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids tha
 <p align="center">I HATEEEE both cc!forever and q!forever what the HELL was wrong with him? him constantly pushing himself onto phil + later threatening to shoot/actually shooting tallulah—even if it was rp—made me SO uncomfortable.</p>
 <p align="center">Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 
-<h3><p align="center"><I>I always assume I'm unwelcome.</I></p></h3>
+<h3><p align="center">「 <I>𝕴 𝖆𝖒 𝕭𝖑𝖔𝖔𝖉, 𝕴 𝖆𝖒 𝕯𝖊𝖆𝖙𝖍, 𝕴 𝖆𝖒 𝕮𝖔𝖓𝖙𝖗𝖔𝖑.</I> 」<br/>
+「 <I>𝕴 𝖆𝖒 𝖙𝖍𝖊 𝖈𝖔𝖓𝖈𝖊𝖕𝖙 𝖔𝖋 𝖆𝖑𝖑 𝖙𝖍𝖆𝖙 𝖞𝖔𝖚 𝖋𝖊𝖆𝖗.</I> 」</p></h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/ec80fcd68c018e366150cb508e9f27d7/b867b817c0e217ff-f0/s2048x3072/e02136adba7de39128484369df27e96cd7f530bd.pnj">
