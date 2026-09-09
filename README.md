@@ -4,7 +4,7 @@
 ︶︶︶︶︶︶︶︶︶︶︶</p></h3>
 
 ***
-<h3><p align="center">C!SBI "FAMILY" DNI IT'S NOT REAL I'M NOT YOUR DADZA OR SON FUCK OFF</p></h3>
+<h3><p align="center">C!SBI "FAMILY" DNI IT'S NOT REAL I'M NOT YOUR DADZA OR SON OR BROTHER FUCK OFF</p></h3>
 
 <h4><p align="center">C!TECHNO IS C!PHILZA'S
 <a href="https://rentry.co/Treatise_cEmeraldduo">OLD FRIEND,</a>
