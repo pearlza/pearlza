@@ -65,7 +65,7 @@ c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids tha
 <p align="center">If I'm in my Ashswagg skin, QSMP AND UU PPL HE HAS MET PLS INT/C+H :D!!! Squiddo skins ok to c+h tho please remember I don't want to be actually flirted with by a stranger.</p>
 <p align="center">If I'm in my Chayanne skin: Philza, Tallulah, Techno, Missa or any of the other eggs PLEASE INT/C+H! DEATHFAMILY+TECHNO!!! q!wilbur dni I am not your brother fuck off.</p>
 <p align="center">If I'm in my Ranboo skins, no ships/tubbo iwc, but anyone may int/c+h! Techno and Tommy especially.</p>
-<p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas and technos with but other OSMP ppl can int.</p>
+<p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas and technos with but other OSMP ppl can int. o!wilbur is on thin ice, as all wilburs are.</p>
 
 ***
 
