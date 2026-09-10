@@ -61,10 +61,6 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 
 ***
 
-<p align="center">Me sitting with Misia is and always will be familial, and we are not whatever weird interpretation you have of whatever characters we happen to be when you see us. I am their online parent and they are my kid. It has nothing to do with characters. Not every person you see is in character or trying to roleplay. Learn the difference between characters and real people. Projecting a character you like onto a complete stranger who merely finds comfort in presenting as them online is really fucking weird btw! Alters in a system are not and will never be "character but in real life." We're people and we don't want to be viewed as whatever weird fucking interpretation you have of a character.</p>
-
-***
-
 <p align="center">If I'm in my Dream skin, int/c+h! As far as discduo is concerned, I'm only comfortable with c+h with my kid Misia or my friend Alex and they do not have to be tommy when sitting with me if I'm in this skin. George dni unless I know you. Please do not kiss me or act romantic to me, ESPECIALLY if I don't know you. Techno int, Punz int! Tommy skins CAN int, either in public chat or whisper, but DO NOT c+h unless you've asked and I have given you permission, as I don't want people who have ship-like names to get me into that kind of drama when I've already been called a creep over just existing in the dsmp fandom as an adult. Please, for the love of god, keep that ship to yourself and don't advertise it publicly. I understand if it's a trauma thing, but do not use me for that. I'm a person and I don't want to be the emotional crutch or fixation of a random stranger, that's creepy. I do <i>not</i> want you, <i>please stop.</i></p>
 <p align="center">If I'm in my Tommy skins, I may act aggressive (nonseriously ofc) toward Dream skins. Techno and Ranboo are comfs. I don't... mind Tubbo? but I don't really see the appeal of ClingyDuo, sorry. Dream skins are... hit or miss tbh so just assume he's on thin ice.</p>
 <details>
@@ -91,8 +87,12 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
 <details>
+<summary><B>Rant about idiots who think people sitting together means a dynamic they want (CLICK!)</B></summary>
+<p align="center">Me sitting with Misia is and always will be the ONLY familial thing I tolerate on this godforsaken pony app, and I am NOT the "family" of any strangers who want to roleplay SBI (gross). We are not whatever weird interpretation you have of whatever characters we happen to be when you see us. I am their online parent and they are my online kid, we are NOT ROLEPLAYING. It has nothing to do with characters. Not every person you see is in character or trying to roleplay. Learn the difference between characters and real people. Projecting a character you like onto a complete stranger is really fucking weird btw! Alters in a system are not and will never be "character but in real life." We're people and we don't want to be viewed as whatever weird fucking interpretation you have of a character or character dynamics.</p>
+</details>
+<details>
 <summary><B>NSFW TOPICS IWEC</B></summary>
-<h4><p align="center">I am severely uncomfortable with being constantly bombarded with NSFW topics and certain types of language, so I will NOT be going to the 18+ server, thanks. Plus, I have trauma from there bc of a former relationship who I now wish to avoid just as much as I avoid the gross conversations on that server. All my fandom areas are easily accessible on safe, and people don't say as many disgusting things because of the filters. If you have a problem with me being on safe server, please block me.</p></h4>
+<p align="center">I am severely uncomfortable with being constantly bombarded with NSFW topics and certain types of language, so I will NOT be going to the 18+ server, thanks. Plus, I have trauma from there bc of a former relationship who I now wish to avoid just as much as I avoid the gross conversations on that server. All my fandom areas are easily accessible on safe, and people don't say as many disgusting things because of the filters. If you have a problem with me being on safe server, please block me.</p>
 </details>
 <details>
 <summary><B>Both WSS and SSS DNI/IWEC (CLICK!)</B></summary>
