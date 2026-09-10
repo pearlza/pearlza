@@ -104,7 +104,7 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 </details>
 <details>
 <summary><B>CC!DREAM SUPPORTERS DNI (CLICK!)</B></summary>
-<p align="center">Don't like or support cc!dream at all. His personality just sucks, I'm sorry. Him beefing with a teenager was the entire plot of the dsmp and he genuinely had (frankly kind of scary)anger issues that he was taking out on Tommy (not to mention calling all Tommy's fans retarded, wtf was that? iirc he wasn't even part of the argument that was happening on that cesspool of negativity called twitter and joined it just to shit on Tommy's fans).</p>
+<p align="center">Don't like or support cc!dream at all. His personality just sucks, I'm sorry. Him beefing with a teenager was the entire plot of the dsmp and he genuinely had (frankly kind of scary)anger issues that he was taking out on Tommy (not to mention calling all Tommy's fans retarded, wtf was that? iirc he wasn't even part of the argument that was happening on that cesspool of negativity called twitter and joined it just to shit on Tommy's fans). Don't know anything about the rest of the cc!dteam so don't care about them at all.</p>
 </details>
 <details>
 <summary><B>CC!FOREVER+Q!FOREVER SKINS DNI</B></summary>
