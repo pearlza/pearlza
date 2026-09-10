@@ -50,7 +50,7 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 
 <p align="center">c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT ONTO ME. DO NOT SIT WITH ME IF YOU SEE TECHNO AS PHIL'S KID.</p>
 <p align="center">If I'm in my Philza skins, Wilbur skins iwc and c!SBI "family" dni. EmeraldDuo is not just platonic to me, that amount of <I>loyalty unto death</I> and the fact that those characters are very old friends feels very queerplatonic to me (coming from someone who has been in a QPR in the past. the way I love and care for the people close to me—and the closeness that I crave—<i>unfortunately</i> affects the way I see these characters).</p>
-<p align="center">If I'm in my Technoblade skins, anyone can int/c+h except for philzas that think I'm their kid (I'M A FUCKING STRANGER WHO SEES THEM AS QUEERPLATONIC).</p>
+<p align="center">If I'm in my Technoblade skins, anyone (yes, including c!wilbur) can int/c+h except for philzas that think I'm their kid (I'M A FUCKING STRANGER WHO SEES THEM AS QUEERPLATONIC).</p>
 <p align="center"><B>ANYONE WHO SEES PHILZA & TECHNO AS FATHER AND SON STRICT DNI. THAT MAKES ME EXTREMELY UNCOMFORTABLE.</B></p>
 
 ***
