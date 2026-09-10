@@ -17,7 +17,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <h4><p align="center">AND I FUCKING MISS HIM OK I MISS MY BEST FRIEND.</p></h4>
 
 <p align="center">🖋️
-<b><a href="https://pearlzas.straw.page">🎵♪ STRAWPAGE ♪🎵</a></b> •
+<b><a href="https://pearlza.straw.page">🎵♪ STRAWPAGE ♪🎵</a></b> •
 <a href="https://rentry.co/intcuddleSMP">int/c+h</a>
 <a href="https://rentry.co/justacrow">philza</a>
 <a href="https://rentry.co/cdreamdisc">c!dream</a>
