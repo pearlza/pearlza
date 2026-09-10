@@ -38,7 +38,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <summary><B>Preferred duo/group c+h: (CLICK!)</B></summary>
 <p align="center">C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (mostly just my kid 
 <a href="https://github.com/mis4nthrope">Misia</a>
-/fam, I'm fine with other tommy skins but don't have the energy to adopt anyone else), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Allium Duo (Tommy, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno), ALSO WTF IS THE DUO NAME FOR PHIL AND FOOLISH I LOVE THEM TOO</p>
+/fam, I'm fine with other tommy skins but don't have the energy to adopt anyone else), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Allium Duo (Tommy, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno), ALSO WTF IS THE DUO NAME FOR PHIL AND FOOLISH I LOVE THEM TOO FOOSH IS A COMF</p>
 </details>
 
 <details>
