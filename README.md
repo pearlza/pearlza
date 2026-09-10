@@ -71,7 +71,7 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <details>
 <summary><B>Rules for interacting with me in skins of these additional characters (CLICK!)</B></summary>
 <p align="center">If I'm in my Tommy skins, I may act aggressive (nonseriously ofc) toward Dream skins. Techno and Ranboo are comfs. I don't... mind Tubbo? but I don't really see the appeal of ClingyDuo, sorry. Dream skins are... hit or miss tbh so just assume he's on thin ice.</p>
-<p align="center">If I'm in my Skeppy skin, TECHNO INT/C+H PLEASE PLEASE PLEASE PLEASE PLEASE! Bbh iwc I don't like randos flirting with me just for skephalo.</p>
+<p align="center">If I'm in my Skeppy skin, TECHNO INT/C+H PLEASE PLEASE PLEASE PLEASE PLEASE! Bbh iwc I don't like randos flirting with me just for skephalo. Nothing wrong with it if you ship it! I just don't want to be flirted with by randos LMAO</p>
 <p align="center">If I'm in my Ashswagg skin, QSMP AND UU PPL HE HAS MET PLS INT/C+H :D!!! Squiddo skins ok to c+h tho please remember I don't want to be actually flirted with by a stranger.</p>
 <p align="center">If I'm in my Chayanne skin: Philza, Tallulah, Techno, Missa or any of the other eggs PLEASE INT/C+H! DEATHFAMILY+TECHNO!!! q!wilbur dni I am not your brother fuck off.</p>
 <p align="center">If I'm in my Ranboo skins, no ships/tubbo iwc, but anyone may int/c+h! Techno and Tommy especially.</p>
