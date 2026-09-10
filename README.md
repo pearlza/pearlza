@@ -32,7 +32,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 ***
 
-<h4 align="center"><B>DISCLAIMER: Me focusing on the fictional c!emeraldduo dynamic and all my queerplatonic headcanons for it keeps me from spiraling when reminded of cc!techno's death and I am <I>very</I> attached to c!techno (I know how to separate the character itself from people who see themselves as him, don't worry), so just keep that in mind. Me being Phil and prioritizing <I>my</I> version of c!emeraldduo—<I>over a certain other popular headcanon that I hate with all my soul</I>—is basically a huge chunk of my personality and you <I>will</I> hear about it if you befriend and talk to me for any length of time.</B></h4>
+<h4 align="center"><B>DISCLAIMER: Me focusing on the fictional c!emeraldduo dynamic and all my queerplatonic headcanons for it keeps me from spiraling when reminded of cc!techno's death and I am <I>very</I> attached to c!techno (I know how to separate the character itself from people who see themselves as him, don't worry), so just keep that in mind. Me being Phil and prioritizing <I>my</I> version of c!emeraldduo—<I>over a certain popular headcanon that I hate with all my soul</I>—is basically a huge chunk of my personality and you <I>will</I> hear about it if you befriend and talk to me for any length of time.</B></h4>
 
 <details>
 <summary><B>Preferred duo/group c+h: (CLICK!)</B></summary>
