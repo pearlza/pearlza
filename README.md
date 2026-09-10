@@ -79,11 +79,6 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 
 ***
 
-<p align="center">DNI if you unironically call someone as young as 18-21 "unc" (overused and factually incorrect in almost all cases, basically just a brainrot term), constantly use brainrot words/abbreviations for normal already short words, or consistently misspell some of the easiest possible words in the English language or replace them with words that sound the same but mean something completely different. I'd prefer to only interact with people who have a similar maturity and language education level to me.</p>
-<p align="center">Seriously, how are people on the other side of the globe whose first language isn't even English spelling better that half the teenagers on the internet whose first language IS English? The level of English education teenagers in the US have is basically below elementary atp. What will motivate kids to be better? At least be smarter than the people you dislike out of spite, if nothing else.</p>
-
-***
-
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
 <details>
@@ -91,8 +86,13 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <p align="center">Me sitting with Misia is and always will be the ONLY familial thing I tolerate on this godforsaken pony app, and I am NOT the "family" of any strangers who want to roleplay SBI (gross). We are not whatever weird interpretation you have of whatever characters we happen to be when you see us. I am their online parent and they are my online kid, we are NOT ROLEPLAYING. It has nothing to do with characters. Not every person you see is in character or trying to roleplay. Learn the difference between characters and real people. Projecting a character you like onto a complete stranger is really fucking weird btw! Alters in a system are not and will never be "character but in real life." We're people and we don't want to be viewed as whatever weird fucking interpretation you have of a character or character dynamics.</p>
 </details>
 <details>
-<summary><B>NSFW TOPICS IWEC</B></summary>
+<summary><B>ALL NSFW TOPICS IWEC</B></summary>
 <p align="center">I am severely uncomfortable with being constantly bombarded with NSFW topics and certain types of language, so I will NOT be going to the 18+ server, thanks. Plus, I have trauma from there bc of a former relationship who I now wish to avoid just as much as I avoid the gross conversations on that server. All my fandom areas are easily accessible on safe, and people don't say as many disgusting things because of the filters. If you have a problem with me being on safe server, please block me.</p>
+</details>
+<details>
+<summary><B>Rant about brainrot words (CLICK!)</B></summary>
+<p align="center">DNI if you unironically call someone as young as 18-21 "unc" (overused and factually incorrect in almost all cases, basically just a brainrot term), constantly use brainrot words/abbreviations for normal already short words, or consistently misspell some of the easiest possible words in the English language or replace them with words that sound the same but mean something completely different. I'd prefer to only interact with people who have a similar maturity and language education level to me.</p>
+<p align="center">Seriously, how are people on the other side of the globe whose first language isn't even English spelling better that half the teenagers on the internet whose first language IS English? The level of English education teenagers in the US have is basically below elementary atp. What will motivate kids to be better? At least be smarter than the people you dislike out of spite, if nothing else.</p>
 </details>
 <details>
 <summary><B>Both WSS and SSS DNI/IWEC (CLICK!)</B></summary>
