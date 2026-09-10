@@ -28,7 +28,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 ***
 
-<p align="center">[📍] MCYT hill. Too awkward to int or sit with most ppl unprompted. Open c+h if you read this repository and you're chill.</p>
+<p align="center">[📍] In front of cave. Too awkward to int or sit with most ppl unprompted. Open c+h if you read this repository and you're chill.</p>
 
 ***
 
