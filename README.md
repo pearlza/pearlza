@@ -32,15 +32,21 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 ***
 
-<p align="center">Preferred duo/group c+h: C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (mostly just my kid 
+<details>
+<summary><B>Preferred duo/group c+h: (CLICK!)</B></summary>
+<p align="center">C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (mostly just my kid 
 <a href="https://github.com/mis4nthrope">Misia</a>
-/fam, I'm fine with other tommy skins but don't have the energy to adopt anyone else), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Allium Duo (Tommy, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno), ALSO WTF IS THE DUO NAME FOR PHIL AND FOOLISH I LOVE THEM TOO FOOSH IS A COMF</p>
+/fam, I'm fine with other tommy skins but don't have the energy to adopt anyone else), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Allium Duo (Tommy, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno), ALSO WTF IS THE DUO NAME FOR PHIL AND FOOLISH I LOVE THEM TOO</p>
+</details>
 
+<details>
+<summary><B>General rules for interacting on PT (CLICK!)</B></summary>
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and WILL prioritize them over you.<br/>
 Don't randomly try to roleplay with me for the love of god. If I join in an rp then I join it but don't assume I'm open to it especially if I'm sitting with a close friend. If I'm with one or two of them (or using offline mode) I'm probably semi-afk and just trying to chill.<br/>
-Do not assume a family dynamic with me if you are a stranger. This is common sense. I am not interested in acting as/roleplaying something that makes me uncomfortable with any but my kid.<br/>
-c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT ONTO ME. DO NOT SIT WITH ME IF YOU SEE TECHNO AS PHIL'S KID.</p>
+Do not assume a family dynamic with me if you are a stranger. This is common sense. I am not interested in acting as/roleplaying something that makes me uncomfortable with any but my kid.</p>
+</details>
 
+<p align="center">c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids that they both look after and care for. SBI "FAMILY" WAS NEVER CANON. SBI WAS THE CCs. DO NOT PUSH THAT ONTO ME. DO NOT SIT WITH ME IF YOU SEE TECHNO AS PHIL'S KID.</p>
 <p align="center">If I'm in my Philza skins, Wilbur skins iwc and c!SBI "family" dni. EmeraldDuo is not just platonic to me, that amount of <I>loyalty unto death</I> and the fact that those characters are very old friends feels very queerplatonic to me (coming from someone who has been in a QPR in the past. the way I love and care for the people close to me—and the closeness that I crave—<i>unfortunately</i> affects the way I see these characters).</p>
 <p align="center">If I'm in my Technoblade skins, anyone can int/c+h except for philzas that think I'm their kid (I'M A FUCKING STRANGER WHO SEES THEM AS QUEERPLATONIC).</p>
 <p align="center"><B>ANYONE WHO SEES PHILZA & TECHNO AS FATHER AND SON STRICT DNI. THAT MAKES ME EXTREMELY UNCOMFORTABLE.</B></p>
@@ -59,20 +65,22 @@ c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids tha
 
 ***
 
-<p align="center">If I'm in my Dream skin, int/c+h! As far as discduo is concerned, I'm only comfortable with c+h with my kid Misia or my friend Alex and they do not have to be tommy when sitting with me if I'm in this skin. George dni unless I know you. Please do not kiss me or act romantic to me, ESPECIALLY if I don't know you. Techno int, Punz int! Tommy skins CAN int, either in public chat or whisper, but DO NOT c+h unless you've asked and I have given you permission, as I don't want people who have ship-like names to get me into that kind of drama when I've already been called a creep over just existing in the dsmp fandom as an adult. Please, for the love of god, keep that ship to yourself and don't advertise it publicly. I understand if it's a trauma thing, but do not use me for that. I'm a person and I don't want to be the emotional crutch or fixation of a random stranger, that's creepy.</p>
+<p align="center">If I'm in my Dream skin, int/c+h! As far as discduo is concerned, I'm only comfortable with c+h with my kid Misia or my friend Alex and they do not have to be tommy when sitting with me if I'm in this skin. George dni unless I know you. Please do not kiss me or act romantic to me, ESPECIALLY if I don't know you. Techno int, Punz int! Tommy skins CAN int, either in public chat or whisper, but DO NOT c+h unless you've asked and I have given you permission, as I don't want people who have ship-like names to get me into that kind of drama when I've already been called a creep over just existing in the dsmp fandom as an adult. Please, for the love of god, keep that ship to yourself and don't advertise it publicly. I understand if it's a trauma thing, but do not use me for that. I'm a person and I don't want to be the emotional crutch or fixation of a random stranger, that's creepy. I do <i>not</i> want you, <i>please stop.</i></p>
 <p align="center">If I'm in my Tommy skins, I may act aggressive (nonseriously ofc) toward Dream skins. Techno and Ranboo are comfs. I don't... mind Tubbo? but I don't really see the appeal of ClingyDuo, sorry. Dream skins are... hit or miss tbh so just assume he's on thin ice.</p>
+<details>
+<summary><B>Rules for interacting with me in skins of these additional characters (CLICK!)</B></summary>
 <p align="center">If I'm in my Skeppy skin, TECHNO INT/C+H PLEASE PLEASE PLEASE PLEASE PLEASE! Bbh iwc I don't like randos flirting with me just for skephalo.</p>
 <p align="center">If I'm in my Ashswagg skin, QSMP AND UU PPL HE HAS MET PLS INT/C+H :D!!! Squiddo skins ok to c+h tho please remember I don't want to be actually flirted with by a stranger.</p>
 <p align="center">If I'm in my Chayanne skin: Philza, Tallulah, Techno, Missa or any of the other eggs PLEASE INT/C+H! DEATHFAMILY+TECHNO!!! q!wilbur dni I am not your brother fuck off.</p>
 <p align="center">If I'm in my Ranboo skins, no ships/tubbo iwc, but anyone may int/c+h! Techno and Tommy especially.</p>
 <p align="center">My inchboy Sneegsnag pony is a comf skin for cuddling philzas and technos with but other OSMP ppl can int. o!wilbur is on thin ice, as all wilburs are.</p>
+</details>
 
 ***
 
 <h4><p align="center">I am severely uncomfortable with being constantly bombarded with NSFW topics and certain types of language, so I will NOT be going to the 18+ server, thanks. Plus, I have trauma from there bc of a former relationship who I now wish to avoid just as much as I avoid the gross conversations on that server. All my fandom areas are easily accessible on safe, and people don't say as many disgusting things because of the filters. If you have a problem with me being on safe server, please block me.</p></h4>
 <h4><p align="center"><b>Please don't just friend me out of the blue without even speaking to me first, we have to have interacted somewhat first before I even consider it, especially if you have no socials indicating your stances on certain fandom opinions that I feel very strongly about.</b></p></h4>
 <h4><p align="center"><b>That being said, please don't be afraid to start a chat with me if we have similar interests! I have been informed by some friends that they were too intimidated to talk to me at first, and that's not the vibe I'm trying to go for at all ;-; I swear I'm friendly I'm just wary of parasocial creeps who come at me with the <s>c!sbi</s> family headcanon</b></p></h4>
-<p align="center"><I>Also wary of the dream/tommy shippers bc some people apparently still think that's normal... everyone I've seen who ships that shit I assume is a traumatized teenager who should be trying to protect themselves, NOT feeding into that mindset. I am an adult around that age and I do NOT want you PLEASE STOP.</I></p>
 
 ***
 
@@ -83,10 +91,20 @@ c!SBI "family" DNI. I only like when it's portrayed as EmeraldDuo + the kids tha
 
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
+<details>
+<summary><B>Both WSS and SSS DNI/IWEC (CLICK!)</B></summary>
 <p align="center">I do not support any creators I don't know enough about (nwss AND nsss, always disliked cc!wilbur's general vibe and attention seeking and whining and the way he would treat people sometimes even publicly on streams, and only tolerated him during dsmp phase bc he was around the people I actually liked watching. know nothing about shelby so don't care about her at all). If you like cc!wilbur, I don't really care just don't talk to me as if he's a good person or can do no wrong because he's human, he definitely can and has. Also I hate forced family dynamics and cc!wilbur was always pushing sbi "family" onto the other three when techno didn't want it. I don't mind if people like or kin c!wilbur tho.</p>
+</details>
+<details>
+<summary><B>CC!DREAM SUPPORTERS DNI (CLICK!)</B></summary>
 <p align="center">Don't like or support cc!dream at all. His personality just sucks, I'm sorry. Him beefing with a teenager was the entire plot of the dsmp and he genuinely had (frankly kind of scary)anger issues that he was taking out on Tommy (not to mention calling all Tommy's fans retarded, wtf was that? iirc he wasn't even part of the argument that was happening on that cesspool of negativity called twitter and joined it just to shit on Tommy's fans).</p>
+</details>
+<details>
+<summary><B>CC!FOREVER+Q!FOREVER SKINS DNI</B></summary>
 <p align="center">I HATEEEE both cc!forever and q!forever what the HELL was wrong with him? him constantly pushing himself onto phil + later threatening to shoot/actually shooting tallulah—even if it was rp—made me SO uncomfortable.</p>
-<p align="center">Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature. That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
+</details>
+<p align="center">Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature.<br/>
+That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 
 ***
 
