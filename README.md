@@ -95,7 +95,7 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <details>
 <summary><B>ALL NSFW TOPICS IWEC</B></summary>
 <p align="center">I am severely uncomfortable with being constantly bombarded with NSFW topics and certain types of language, so I will NOT be going to the 18+ server, thanks. Plus, I have trauma from there bc of a former relationship who I now wish to avoid just as much as I avoid the gross conversations on that server. All my fandom areas are easily accessible on safe, and people don't say as many disgusting things because of the filters. If you have a problem with me being on safe server, please block me.</p>
-<p align="center">I will not respond and/or redirect the conversation if any minor tries to initiate a conversation including sexual topics to me. Not only is that TMI and not something I want to hear even from fellow adults, it is extremely unsafe for a minor to do so with a stranger. Please remember basic internet safety I am <i>begging</i>.</p>
+<p align="center">I will not respond or will redirect the conversation if any minor tries to initiate a conversation including sexual topics to me. Not only is that TMI and not something I want to hear even from fellow adults, it is extremely unsafe for a minor to do so with a stranger. Please remember basic internet safety I am <i>begging</i>.</p>
 </details>
 <details>
 <summary><B>Rant about brainrot words (CLICK!)</B></summary>
