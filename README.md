@@ -32,6 +32,16 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 ***
 
+<details>
+<summary><B>Emojis on my ponies and what they mean! (CLICK!)</B></summary>
+<br/>
+<p align="center">🍵/☕ - I usually, almost always have a drink at my desk! I use this emoji a lot even when I forget to refill my tea.</p>
+<p align="center">🌸 - I am currently feeling more comfortable in pink or feminine clothes. This is usually reflected in my pony skin!</p>
+<p align="center">🕯️ - I am currently playing Sky: Children of the Light, and will most likely be offtab looking away from ponytown.</p>
+<p align="center">🎁 - This skin is a gift from someone else! I don't usually wear gifts since I like my style more most of the time.</p>
+<p align="center">more emoji descriptions soon!</p>
+</details>
+
 <p align="center"><B>DISCLAIMER: Me focusing on the fictional c!emeraldduo dynamic and all my headcanons for it keeps me from spiraling when reminded of cc!techno's death, so just keep that in mind. Me being Phil and prioritizing <I>my</I> version of c!emeraldduo—<I>over a certain popular headcanon that I hate with all my soul</I>—is basically a huge chunk of my personality. I am fully aware other versions of techno can and do exist, and I am in no way interested in imposing my views onto them. I respect them if they are close to canon.</B></p>
 
 <details>
