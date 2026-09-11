@@ -40,7 +40,6 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <p align="center">🌸 - I am currently feeling more comfortable in pink or feminine clothes. This is usually reflected in my pony skin!</p>
 <p align="center">🕯️ - I am currently playing Sky: Children of the Light, and will most likely be offtab looking away from ponytown.</p>
 <p align="center">🎁 - This skin is a gift from someone else! I don't usually wear gifts since I like my style more most of the time.</p>
-<p align="center">more emoji descriptions soon!</p>
 </details>
 <details>
 <summary><B>Preferred duo/group c+h</B></summary>
