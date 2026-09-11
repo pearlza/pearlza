@@ -32,27 +32,24 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 ***
 
+<p align="center"><B>DISCLAIMER: Me focusing on the fictional c!emeraldduo dynamic and all my headcanons for it keeps me from spiraling when reminded of cc!techno's death, so just keep that in mind. Me being Phil and prioritizing <I>my</I> version of c!emeraldduo—<I>over a certain popular headcanon that I hate with all my soul</I>—is basically a huge chunk of my personality. I am fully aware other versions of techno can and do exist, and I am in no way interested in imposing my views onto them. I respect them if they are close to canon.</B></p>
 <details>
-<summary><B>Emojis on my ponies and what they mean! (CLICK!)</B></summary>
+<summary><B>EMOJI MEANINGS FOR PT</B></summary>
 <br/>
-<p align="center">🍵/☕ - I usually, almost always have a drink at my desk! I use this emoji a lot even when I forget to refill my tea.</p>
+<p align="center">🍵 - I usually, almost always have a drink at my desk! I use this emoji a lot even when I forget to refill my tea...</p>
 <p align="center">🌸 - I am currently feeling more comfortable in pink or feminine clothes. This is usually reflected in my pony skin!</p>
 <p align="center">🕯️ - I am currently playing Sky: Children of the Light, and will most likely be offtab looking away from ponytown.</p>
 <p align="center">🎁 - This skin is a gift from someone else! I don't usually wear gifts since I like my style more most of the time.</p>
 <p align="center">more emoji descriptions soon!</p>
 </details>
-
-<p align="center"><B>DISCLAIMER: Me focusing on the fictional c!emeraldduo dynamic and all my headcanons for it keeps me from spiraling when reminded of cc!techno's death, so just keep that in mind. Me being Phil and prioritizing <I>my</I> version of c!emeraldduo—<I>over a certain popular headcanon that I hate with all my soul</I>—is basically a huge chunk of my personality. I am fully aware other versions of techno can and do exist, and I am in no way interested in imposing my views onto them. I respect them if they are close to canon.</B></p>
-
 <details>
-<summary><B>Preferred duo/group c+h: (CLICK!)</B></summary>
+<summary><B>Preferred duo/group c+h</B></summary>
 <p align="center">C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (mostly just my kid 
 <a href="https://github.com/mis4nthrope">Misia</a>
 /fam, I'm fine with other tommy skins but don't have the energy to adopt anyone else), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Allium Duo (Tommy, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno), ALSO WTF IS THE DUO NAME FOR PHIL AND FOOLISH I LOVE THEM TOO FOOSH IS A COMF</p>
 </details>
-
 <details>
-<summary><B>General rules for interacting on PT (CLICK!)</B></summary>
+<summary><B>General rules for interacting on PT</B></summary>
 <p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and WILL prioritize them over you.<br/>
 Don't randomly try to roleplay with me for the love of god. If I join in an rp then I join it but don't assume I'm open to it especially if I'm sitting with a close friend. If I'm with one or two of them (or using offline mode) I'm probably semi-afk and just trying to chill.<br/>
 Do not assume a family dynamic with me if you are a stranger. This is common sense. I am not interested in acting as/roleplaying something that makes me uncomfortable.</p>
@@ -79,7 +76,7 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <p align="center">I don't want people who have ship-like names to get me into drama about that weird ship when I've already been called a creep over just existing in the dsmp fandom as an adult. Please, for the love of god, keep that ship to yourself and don't advertise it publicly. I understand if it's a trauma thing, but do not use me for that. I'm a person and I don't want to be the emotional crutch or fixation of a random stranger, that's creepy. I do <i>not</i> want you, <i>please stop.</i></p>
 </details>
 <details>
-<summary><B>Rules for interacting with me in skins of these additional characters (CLICK!)</B></summary>
+<summary><B>Rules for interacting with me in skins of these additional characters</B></summary>
 <p align="center">If I'm in my Tommy skins, I may act aggressive (nonseriously ofc) toward Dream skins. Techno and Ranboo are comfs. I don't... mind Tubbo? but I don't really see the appeal of ClingyDuo, sorry. Dream skins are... hit or miss tbh so just assume he's on thin ice.</p>
 <p align="center">If I'm in my Skeppy skin, TECHNO INT/C+H PLEASE PLEASE PLEASE PLEASE PLEASE! Bbh iwc I don't like randos flirting with me just for skephalo. Nothing wrong with it if you ship it! I just don't want to be flirted with by randos LMAO</p>
 <p align="center">If I'm in my Ashswagg skin, QSMP AND UU PPL HE HAS MET PLS INT/C+H :D!!! Squiddo skins ok to c+h tho please remember I don't want to be actually flirted with by a stranger.</p>
@@ -98,7 +95,7 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <h4><p align="center">DISCLAIMER I GUESS</p></h4>
 
 <details>
-<summary><B>Rant about idiots who think people sitting together means a dynamic they want (CLICK!)</B></summary>
+<summary><B>Rant about idiots who think people sitting together means a dynamic they want</B></summary>
 <p align="center">Me sitting with Misia is and always will be the ONLY familial thing I tolerate on this godforsaken pony app, and I am NOT the "family" of any strangers who want to roleplay SBI (gross). We are not whatever weird interpretation you have of whatever characters we happen to be when you see us. I am their online parent and they are my online kid, we are NOT ROLEPLAYING. It has nothing to do with characters. Not every person you see is in character or trying to roleplay. Learn the difference between characters and real people. Projecting a character you like onto a complete stranger is really fucking weird btw! Alters in a system are not and will never be "character but in real life." We're people and we don't want to be viewed as whatever weird fucking interpretation you have of a character or character dynamics.</p>
 </details>
 <details>
@@ -107,20 +104,20 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <p align="center">I will not respond or will redirect the conversation if any minor tries to initiate a conversation including sexual topics to me. Not only is that TMI and not something I want to hear even from fellow adults, it is extremely unsafe for a minor to do so with a stranger. Please remember basic internet safety I am <i>begging</i>.</p>
 </details>
 <details>
-<summary><B>Rant about brainrot words (CLICK!)</B></summary>
+<summary><B>Rant about brainrot words</B></summary>
 <p align="center">DNI if you unironically call someone as young as 18-21 "unc" (overused and factually incorrect in almost all cases, basically just a brainrot term), constantly use brainrot words/abbreviations for normal already short words, or consistently misspell some of the easiest possible words in the English language or replace them with words that sound the same but mean something completely different. I'd prefer to only interact with people who have a similar maturity and language education level to me.</p>
 <p align="center">Seriously, how are people on the other side of the globe whose first language isn't even English spelling better that half the teenagers on the internet whose first language IS English? The level of English education teenagers in the US have is basically below elementary atp. What will motivate kids to be better? At least be smarter than the people you dislike out of spite, if nothing else.</p>
 </details>
 <details>
-<summary><B>Both WSS and SSS DNI/IWEC (CLICK!)</B></summary>
+<summary><B>Both WSS and SSS DNI/IWEC</B></summary>
 <p align="center">I do not support any creators I don't know enough about (nwss AND nsss, always disliked cc!wilbur's general vibe and attention seeking and whining and the way he would treat people sometimes even publicly on streams, and only tolerated him during dsmp phase bc he was around the people I actually liked watching. know nothing about shelby so don't care about her at all). If you like cc!wilbur, I don't really care just don't talk to me as if he's a good person or can do no wrong because he's human, he definitely can and has. Also I hate forced family dynamics and cc!wilbur was always pushing sbi "family" onto the other three when techno didn't want it. I don't mind if people like or kin c!wilbur tho.</p>
 </details>
 <details>
-<summary><B>CC!DREAM SUPPORTERS DNI (CLICK!)</B></summary>
+<summary><B>CC!DREAM SUPPORTERS DNI</B></summary>
 <p align="center">Don't like or support cc!dream at all. His personality just sucks, I'm sorry. Him beefing with a teenager was the entire plot of the dsmp and he genuinely had (frankly kind of scary)anger issues that he was taking out on Tommy (not to mention calling all Tommy's fans retarded, wtf was that? iirc he wasn't even part of the argument that was happening on that cesspool of negativity called twitter and joined it just to shit on Tommy's fans). Don't know anything about the rest of the cc!dteam so don't care about them at all.</p>
 </details>
 <details>
-<summary><B>CC!FOREVER+Q!FOREVER SKINS DNI</B></summary>
+<summary><B>Q!FOREVER SKINS DNI</B></summary>
 <p align="center">I HATEEEE both cc!forever and q!forever what the HELL was wrong with him? him constantly pushing himself onto phil + later threatening to shoot/actually shooting tallulah—even if it was rp—made me SO uncomfortable.</p>
 </details>
 <p align="center">Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature.<br/>
