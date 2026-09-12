@@ -62,11 +62,11 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 
 ***
 
-<h4><p align="center"><I>What is home to you?</I></p></h4>
+<h4><p align="center"><I>$\color{#37642f}{\textsf{𝐖𝐡𝐚𝐭 𝐢𝐬 𝐡𝐨𝐦𝐞 𝐭𝐨 𝐲𝐨𝐮?}}$</I></p></h4>
 <div align="center">
   <img src="https://i0.wp.com/www.cobaltjade.com/wp-content/uploads/2022/06/206246-e1661382126739.jpg?resize=400%2C313">
 </div>
-<h4><p align="center"><I>Is it a person? A fandom? A place?</I></p></h4>
+<h4><p align="center"><I>$\color{#37642f}{\textsf{𝐈𝐬 𝐢𝐭 𝐚 𝐩𝐞𝐫𝐬𝐨𝐧? 𝐀 𝐟𝐚𝐧𝐝𝐨𝐦? 𝐀 𝐩𝐥𝐚𝐜𝐞?}}$</I></p></h4>
 
 ***
 
