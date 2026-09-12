@@ -1,7 +1,7 @@
-<h3><p align="center">︵︵︵︵︵︵︵︵︵︵︵<br/>
-✧ ˖˚₊⭒˙｡ 𝐁𝐋𝐎𝐓 𝐎𝐔𝐓 𝐓𝐇𝐄 𝐒𝐔𝐍 ｡˙⭒₊˚˖ ✧<br/>
-𓆩 *˖˚₊⭒˙｡ 𝐖𝐈𝐓𝐇 𝐘𝐎𝐔𝐑 𝐖𝐈𝐍𝐆𝐒 ｡˙⭒₊˚˖* 𓆪<br/>
-︶︶︶︶︶︶︶︶︶︶︶</p></h3>
+<h3><p align="center">$\color{#37642f}{\textsf{︵︵︵︵︵︵︵︵︵︵︵}}$<br/>
+$\color{#37642f}{\textsf{✧ ˖˚₊⭒˙｡ 𝐁𝐋𝐎𝐓 𝐎𝐔𝐓 𝐓𝐇𝐄 𝐒𝐔𝐍 ｡˙⭒₊˚˖ ✧}}$<br/>
+$\color{#37642f}{\textsf{𓆩 *˖˚₊⭒˙｡ 𝐖𝐈𝐓𝐇 𝐘𝐎𝐔𝐑 𝐖𝐈𝐍𝐆𝐒 ｡˙⭒₊˚˖* 𓆪}}$<br/>
+$\color{#37642f}{\textsf{︶︶︶︶︶︶︶︶︶︶︶}}$</p></h3>
 
 ***
 <h3><p align="center">C!SBI "FAMILY" DNI IT'S NOT REAL I'M NOT YOUR DADZA OR SON OR BROTHER FUCK OFF</p></h3>
@@ -137,3 +137,4 @@ That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 <div align="center">
   <img src="https://64.media.tumblr.com/bfcd19bade3c0ebbd13f3c1d3d90f4ce/b98213e4decf3498-be/s250x400/7907ca270b549576b31d155b33e34ef84c49d3d2.pnj">
 </div>
+<!--<p style="color:#37642f;"><strong>Philza introject. EmeraldDuo enthusiast who craves the kind of loyalty and protection that these characters seem to have for each other.</strong></p>-->
