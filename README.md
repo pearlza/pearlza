@@ -50,7 +50,9 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 </details>
 <details>
 <summary><B>General rules for interacting on PT</B></summary>
-<p align="center">If I'm sitting with one of my friends, please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and WILL prioritize them over you.<br/>
+<p align="center">If I'm sitting with one of my friends, especially
+<a href="https://github.com/mis4nthrope">Misia,</a>
+please interact in whisper and/or ASK FIRST before trying to sit with me, sometimes I am focused on private conversations and WILL prioritize them over you.<br/>
 Don't randomly try to roleplay with me for the love of god. If I join in an rp then I join it but don't assume I'm open to it especially if I'm sitting with a close friend. If I'm with one or two of them (or using offline mode) I'm probably semi-afk and just trying to chill.<br/>
 Do not assume a family dynamic with me if you are a stranger. This is common sense. I am not interested in acting as/roleplaying something that makes me uncomfortable.</p>
 </details>
