@@ -46,7 +46,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <summary><B>Preferred duo/group c+h</B></summary>
 <p align="center">C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (mostly just my kid 
 <a href="https://github.com/mis4nthrope">Misia</a>
-/fam, I'm fine with other tommy skins but don't have the energy to adopt anyone else), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Allium Duo (Tommy, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno), ALSO WTF IS THE DUO NAME FOR PHIL AND FOOLISH I LOVE THEM TOO FOOSH IS A COMF</p>
+/fam, I'm fine with other tommy skins but don't have the energy to adopt anyone else), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Allium Duo (Tommy, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno), ALSO WTF IS THE DUO NAME FOR PHIL AND FOOLISH I LOVE THEM TOO FOOSH IS A COMF! ALSO Q!JAIDEN AND Q!TINA AND ANY OTHER WHOLESOME QSMP PPL PLS INT</p>
 </details>
 <details>
 <summary><B>General rules for interacting on PT</B></summary>
@@ -80,7 +80,7 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <details>
 <summary><B>Rules for interacting with me in skins of these additional characters</B></summary>
 <p align="center">If I'm in my Tommy skins, I may act aggressive (nonseriously ofc) toward Dream skins. Techno and Ranboo are comfs. I don't... mind Tubbo? but I don't really see the appeal of ClingyDuo, sorry. Dream skins are... hit or miss tbh so just assume he's on thin ice.</p>
-<p align="center">If I'm in my Skeppy skin, TECHNO INT/C+H PLEASE PLEASE PLEASE PLEASE PLEASE! Bbh iwc I don't like randos flirting with me just for skephalo. Nothing wrong with it if you ship it! I just don't want to be flirted with by randos LMAO</p>
+<p align="center">If I'm in my Skeppy skin, TECHNO INT/C+H PLEASE PLEASE PLEASE PLEASE PLEASE! Bbh iwc I don't like randos flirting with me just for skephalo. Nothing wrong with it if you ship it! I just don't care that much for it myself and don't want to be flirted with by randos, since this skin is more of a 'grieving techno' skin than something I would allow ships with.</p>
 <p align="center">If I'm in my Ashswagg skin, QSMP AND UU PPL HE HAS MET PLS INT/C+H :D!!! Squiddo skins ok to c+h tho please remember I don't want to be actually flirted with by a stranger.</p>
 <p align="center">If I'm in my Chayanne skin: Philza, Tallulah, Techno, Missa or any of the other eggs PLEASE INT/C+H! DEATHFAMILY+TECHNO!!! q!wilbur dni I am not your brother fuck off.</p>
 <p align="center">If I'm in my Ranboo skins, no ships/tubbo iwc, but anyone may int/c+h! Techno and Tommy especially.</p>
