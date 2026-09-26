@@ -37,6 +37,7 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 <summary><B>EMOJI MEANINGS FOR PT</B></summary>
 <br/>
 <p align="center">🍵 - I usually, almost always have a drink at my desk! I use this emoji a lot even when I forget to refill my tea...</p>
+<p align="center">🎧 - I am currently listening to music. Usually this emoji means I am focusing on that more than other activities.</p>
 <p align="center">🌸 - I am currently feeling more comfortable in pink or feminine clothes. This is usually reflected in my pony skin!</p>
 <p align="center">🕯️ - I am currently playing Sky: Children of the Light, and will most likely be offtab looking away from ponytown.</p>
 <p align="center">🎁 - This skin is a gift from someone else! I don't usually wear gifts since I like my style more most of the time.</p>
