@@ -33,7 +33,10 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 ***
 
-<p align="center">I am deadly serious; I wanted a more fem/androgynous name, shortened a name I used to use that I don't go by online anymore, and <I>my new name apparently means father in Misia's language, and is pronounced the same way I say it too.</I> I'm not the type to believe in fate, but this is like a cosmic level acknowledgement of my very soul. We're on the same wavelength in every way that matters.</p>
+<p align="center">If I'm sitting with 
+<a href="https://github.com/mis4nthrope">Misia</a>
+please W2I/IWC, I am most likely busy with them.<br/>
+I am dead serious; I wanted a more fem/androgynous name, shortened a name I used to use that I don't go by online anymore, and <I>my new name apparently means father in Misia's language, and it's pronounced the exact same way I say it.</I> I'm not the type to believe in fate, but this is like a cosmic level validation of my very soul. We're on the same wavelength in every way that matters.</p>
 <details>
 <summary><B>EMOJI MEANINGS FOR PT</B></summary>
 <br/>
