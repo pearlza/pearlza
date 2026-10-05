@@ -135,7 +135,8 @@ That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 
 <h3><p align="center">「 <I>𝕴 𝖆𝖒 𝕯𝖊𝖆𝖙𝖍 𝖆𝖓𝖉 𝕭𝖑𝖔𝖔𝖉𝖑𝖚𝖘𝖙 𝖆𝖓𝖉 𝕮𝖔𝖓𝖙𝖗𝖔𝖑.</I> 」<br/>
 「 <I>𝕴 𝖆𝖒 𝖆𝖘 𝖎𝖓𝖊𝖛𝖎𝖙𝖆𝖇𝖑𝖊 𝖆𝖘 𝖙𝖍𝖊 𝖉𝖆𝖜𝖓𝖎𝖓𝖌 𝖘𝖚𝖓.</I> 」<br/>
-「 <I>𝕴 𝖆𝖒 𝖙𝖍𝖊 𝖉𝖊𝖎𝖙𝖞 𝖞𝖔𝖚 𝖍𝖆𝖛𝖊 𝖋𝖔𝖗𝖌𝖔𝖙𝖙𝖊𝖓.</I> 」</p></h3>
+「 <I><a href="https://open.spotify.com/playlist/2FKd58pMgzgh2zP4kZsdkI?si=7fcf426d49bb4004">𝕴 𝖆𝖒 𝖙𝖍𝖊 𝖉𝖊𝖎𝖙𝖞 𝖞𝖔𝖚 𝖍𝖆𝖛𝖊 𝖋𝖔𝖗𝖌𝖔𝖙𝖙𝖊𝖓.</a></I> 」</p></h3>
+
 
 <div align="center">
   <img src="https://64.media.tumblr.com/ec80fcd68c018e366150cb508e9f27d7/b867b817c0e217ff-f0/s2048x3072/e02136adba7de39128484369df27e96cd7f530bd.pnj">
