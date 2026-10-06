@@ -1,4 +1,4 @@
-<h1 align="center">ᚠᛁᛚ ᛬ ᚴᚱᛅᚴᚢᚢᛅᚾᚴᚱ</h1>
+<h1 align="center">$\color{#ebe6d9}{\textsf{ᚠᛁᛚ ᛬ ᚴᚱᛅᚴᚢᚢᛅᚾᚴᚱ}}$</h1>
 <h3><p align="center">$\color{#37642f}{\textsf{︵︵︵︵︵︵︵︵︵︵︵}}$<br/>
 $\color{#37642f}{\textsf{✧ ˖˚₊⭒˙｡ 𝐁𝐋𝐎𝐓 𝐎𝐔𝐓 𝐓𝐇𝐄 𝐒𝐔𝐍 ｡˙⭒₊˚˖ ✧}}$<br/>
 $\color{#37642f}{\textsf{𓆩 *˖˚₊⭒˙｡ 𝐖𝐈𝐓𝐇 𝐘𝐎𝐔𝐑 𝐖𝐈𝐍𝐆𝐒 ｡˙⭒₊˚˖* 𓆪}}$<br/>
