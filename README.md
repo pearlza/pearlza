@@ -29,7 +29,12 @@ NOT HIS KID. THE CC LITERALLY SAID HIMSELF THAT HIS AND PHILZA'S CHARACTERS ARE 
 
 ***
 
-<p align="center">[📍] In front of cave. Too awkward to int or sit with most ppl unprompted. Open c+h if you read this repository and you're chill.</p>
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&cover_image=false&theme=default&show_offline=false&background_color=181934&interchange=true&profanity=false&hide_remaster=false">
+  </a>
+<br/>
+[📍] In front of cave. Too awkward to int or sit with most ppl unprompted. Open c+h if you read this repository and you're chill.</p>
 
 ***
 
