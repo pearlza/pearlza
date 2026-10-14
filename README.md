@@ -52,7 +52,7 @@ I am dead serious; I wanted a more fem/androgynous name, shortened a name I used
 <summary><B>Preferred duo/group c+h</B></summary>
 <p align="center">C!EMERALDDUO (comf dynamic, QUEERPLATONIC NOT FAMILIAL.), ANGEL DUO (mostly just my kid 
 <a href="https://github.com/mis4nthrope">Misia</a>
-/fam, I'm fine with other tommy skins but don't have the energy to adopt anyone else), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo (Techno, Ranboo), Allium Duo (Tommy, Ranboo), Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno), ALSO IMMORTALS/UNDYING DUO (Phil and Foolish) FOOSH IS A COMF! ALSO Q!JAIDEN AND Q!TINA AND ANY OTHER WHOLESOME QSMP PPL PLS INT</p>
+/fam, I'm fine with other tommy skins but you need to understand just how much energy and work goes into actually being a parental figure; I do not know or trust anyone else enough to expend energy treating them like an actual family member), ANTARCTIC EMPIRE (EmeraldDuo but without the DSMP in the way), BEDROCK BROS (comf dynamic), Doomsday Trio, Death Family (Phil, Missa, Chayanne, Lulah), Anarchy/Veterans Duo (Phil and Fit), Death Duo (Phil and Missa), Rivals Duo (Techno, c!Dream), Peer Pressure Duo, Allium Duo, Anarchist Syndicate (Phil, Tech, Ran, Niki), Orphan Duo (Skeppy and Techno), ALSO IMMORTALS/UNDYING DUO (Phil and Foolish) FOOSH IS A COMF! ALSO Q!JAIDEN AND Q!TINA AND ANY OTHER WHOLESOME QSMP PPL PLS INT</p>
 </details>
 <details>
 <summary><B>General rules for interacting on PT</B></summary>
