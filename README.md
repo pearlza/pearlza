@@ -130,8 +130,9 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <p align="center">Don't like or support cc!dream at all. His personality just sucks, I'm sorry. Him beefing with a teenager was the entire plot of the dsmp and he genuinely had (frankly kind of scary)anger issues that he was taking out on Tommy (not to mention calling all Tommy's fans retarded, wtf was that? iirc he wasn't even part of the argument that was happening on that cesspool of negativity called twitter and joined it just to shit on Tommy's fans). Don't know anything about the rest of the cc!dteam so don't care about them at all.</p>
 </details>
 <details>
-<summary><B>Q!FOREVER SKINS DNI</B></summary>
-<p align="center">I HATEEEE both cc!forever and q!forever what the HELL was wrong with him? him constantly pushing himself onto phil + later threatening to shoot/actually shooting tallulah—even if it was rp—made me SO uncomfortable.</p>
+<summary><B>Q!FOREVER & Q!WIL SKINS DNI</B></summary>
+<p align="center">I HATEEEE both cc!forever and q!forever what the HELL was wrong with him? him constantly pushing himself onto phil + later threatening to shoot/actually shooting tallulah—even if it was rp—made me SO uncomfortable.<br/>
+I cringe every time I rewatch qsmp1 bc I had to watch wilbur actively destroying phil's avocado buds as a "joke" and him calling chayanne his brother and tallulah chayanne's niece, which made me EXTREMELY uncomfortable considering the eggs are siblings and phil was over the family dynamic at that point and trying to create a new story that didn't revolve around forced sbi.</p>
 </details>
 <p align="center">Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature.<br/>
 That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
