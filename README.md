@@ -132,7 +132,8 @@ Do not assume a family dynamic with me if you are a stranger. This is common sen
 <details>
 <summary><B>Q!FOREVER & Q!WIL SKINS DNI</B></summary>
 <p align="center">I HATEEEE both cc!forever and q!forever what the HELL was wrong with him? him constantly pushing himself onto phil + later threatening to shoot/actually shooting tallulah—even if it was rp—made me SO uncomfortable.<br/>
-I cringe every time I rewatch qsmp1 bc I had to watch wilbur actively destroying phil's avocado buds as a "joke" and him calling chayanne his brother and tallulah chayanne's niece, which made me EXTREMELY uncomfortable considering the eggs are siblings and phil was over the family dynamic at that point and trying to create a new story that didn't revolve around forced sbi.</p>
+I cringe every time I rewatch qsmp1 bc I had to watch wilbur actively destroying phil's avocado buds as a "joke" and him calling chayanne his brother and tallulah chayanne's niece, which made me EXTREMELY uncomfortable considering the eggs are siblings and phil was over the family dynamic at that point and trying to create a new story that didn't revolve around forced sbi.<br/>
+If I EVER make a Tallulah skin (I probably won't), q!wilbur skins IWC because not only is wilbur a bad person irl, he is a shit father who abandoned her in rp. if you want to change my mind about this, you actually have to treat me with respect and gentleness.</p>
 </details>
 <p align="center">Do not drag me into drama, I can guarantee you I am not informed enough to be in arguments of that nature.<br/>
 That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
@@ -152,4 +153,4 @@ That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 <div align="center">
   <img src="https://64.media.tumblr.com/bfcd19bade3c0ebbd13f3c1d3d90f4ce/b98213e4decf3498-be/s250x400/7907ca270b549576b31d155b33e34ef84c49d3d2.pnj">
 </div>
-<!--<p style="color:#37642f;"><strong>Philza introject. EmeraldDuo enthusiast who craves the kind of loyalty and protection that these characters seem to have for each other.</strong></p>-->
+<!--<p style="color:#37642f;"><strong>Philza introject.</strong></p>-->
