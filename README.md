@@ -140,8 +140,8 @@ That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 
 ***
 
-<h3><p align="center">「 <I>𝕴 𝖆𝖒 𝕯𝖊𝖆𝖙𝖍 𝖆𝖓𝖉 𝕭𝖑𝖔𝖔𝖉𝖑𝖚𝖘𝖙 𝖆𝖓𝖉 𝕮𝖔𝖓𝖙𝖗𝖔𝖑.</I> 」<br/>
-「 <I>𝕴 𝖆𝖒 𝖆𝖘 𝖎𝖓𝖊𝖛𝖎𝖙𝖆𝖇𝖑𝖊 𝖆𝖘 𝖙𝖍𝖊 𝖉𝖆𝖜𝖓𝖎𝖓𝖌 𝖘𝖚𝖓.</I> 」<br/>
+<h3><p align="center">「 <I> 𝕴𝖘 𝖙𝖍𝖎𝖘 𝕯𝖊𝖆𝖙𝖍 𝖔𝖗 𝕽𝖊𝖇𝖎𝖗𝖙𝖍？</I> 」<br/>
+「 <I>𝕷𝖊𝖙 𝖒𝖊 𝖇𝖊 𝖞𝖔𝖚𝖗 𝖆𝖓𝖈𝖍𝖔𝖗 𝖙𝖔 𝖙𝖍𝖊 𝖊𝖆𝖗𝖙𝖍.</I> 」<br/>
 「 <I><a href="https://open.spotify.com/playlist/2FKd58pMgzgh2zP4kZsdkI?si=7fcf426d49bb4004">𝕴 𝖆𝖒 𝖙𝖍𝖊 𝖉𝖊𝖎𝖙𝖞 𝖞𝖔𝖚 𝖍𝖆𝖛𝖊 𝖋𝖔𝖗𝖌𝖔𝖙𝖙𝖊𝖓.</a></I> 」</p></h3>
 
 
