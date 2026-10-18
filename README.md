@@ -49,9 +49,9 @@ I am dead serious; I wanted a more fem/androgynous name, shortened a name I used
 <p align="center">🎧 - I am currently listening to music. Usually this emoji means I am focusing on that more than other activities.</p>
 <p align="center">🍚 - It is either around mealtime or I am currently hungry/eating food. This is the emoji I use to indicate "dinner."</p>
 <p align="center">🌸 - I am currently feeling more comfortable in pink or feminine clothes. This is usually reflected in my pony skin!</p>
-<p align="center">🕯️ - I am currently playing Sky: Children of the Light, and will most likely be offtab looking away from ponytown.</p>
+<p align="center">💤 - This is the emoji I use when I'm getting ready for bed or in bed, and wrapping up conversations with friends.</p>
 <p align="center">🎁 - This skin is a gift from someone else! I don't usually wear gifts since I like my style more most of the time.</p>
-<p align="center">💤 - This is an emoji I use when I'm getting ready for bed/in bed, and wrapping up conversations with friends.</p>
+<p align="center">🕯️ - I'm currently playing Sky: Children of the Light, and will most likely be offtab looking away from ponytown.</p>
 </details>
 <details>
 <summary><B>Preferred duo/group c+h</B></summary>
