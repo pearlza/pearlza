@@ -45,9 +45,9 @@ I am dead serious; I wanted a more fem/androgynous name, shortened a name I used
 <details>
 <summary><B>EMOJI MEANINGS FOR PT</B></summary>
 <br/>
-<p align="center">🍵 - I usually, almost always have a drink at my desk! I use this emoji a lot even when I forget to refill my tea...</p>
-<p align="center">🎧 - I am currently listening to music. Usually this emoji means I am focusing on that more than other activities.</p>
-<p align="center">🍚 - It is either around mealtime or I am currently hungry/eating food. This is the emoji I use to indicate "dinner."</p>
+<p align="center">🍵 - I usually, almost always have a drink at my desk! I use this emoji most and only use the coffee emoji sometimes.</p>
+<p align="center">🎧 - I am currently listening to music. Usually this emoji means I am looping a song/trying to use it to destress/focus.</p>
+<p align="center">🍚 - It is either around mealtime or I am currently hungry/eating food. It's interchangeable with all other food emojis.</p>
 <p align="center">🌸 - I am currently feeling more comfortable in pink or feminine clothes. This is usually reflected in my pony skin!</p>
 <p align="center">💤 - This is the emoji I use when I'm getting ready for bed or in bed, and wrapping up conversations with friends.</p>
 <p align="center">🎁 - This skin is a gift from someone else! I don't usually wear gifts since I like my style more most of the time.</p>
