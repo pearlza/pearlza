@@ -141,7 +141,7 @@ That being said, SUBSCRIBE TO TECHNOBLADEEEE</p>
 ***
 
 <h3><p align="center">「 <I> 𝕴𝖘 𝖙𝖍𝖎𝖘 𝕯𝖊𝖆𝖙𝖍 𝖔𝖗 𝕽𝖊𝖇𝖎𝖗𝖙𝖍？</I> 」<br/>
-「 <I>𝕷𝖊𝖙 𝖒𝖊 𝖇𝖊 𝖞𝖔𝖚𝖗 𝖆𝖓𝖈𝖍𝖔𝖗 𝖙𝖔 𝖙𝖍𝖊 𝖊𝖆𝖗𝖙𝖍.</I> 」<br/>
+「 <I><a href="https://open.spotify.com/playlist/0gTuGUzh91Y0kBMpbPxmMq?si=aeace191bb1c4c5f">𝕯𝖆𝖓𝖈𝖊 𝖑𝖎𝖐𝖊 𝖓𝖔 𝖔​𝖓𝖊 𝖎𝖘 𝖜𝖆𝖙𝖈𝖍𝖎𝖓𝖌.</a></I> 」<br/>
 「 <I><a href="https://open.spotify.com/playlist/2FKd58pMgzgh2zP4kZsdkI?si=7fcf426d49bb4004">𝕴 𝖆𝖒 𝖙𝖍𝖊 𝖉𝖊𝖎𝖙𝖞 𝖞𝖔𝖚 𝖍𝖆𝖛𝖊 𝖋𝖔𝖗𝖌𝖔𝖙𝖙𝖊𝖓.</a></I> 」</p></h3>
 
 
